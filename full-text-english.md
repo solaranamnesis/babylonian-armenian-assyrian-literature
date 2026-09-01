@@ -1,5 +1,5 @@
-BAbYLONIAN  AND    ; 
-ASSYRIAN  LITERATURE  ^ 
+BABYLONIAN  AND
+ASSYRIAN  LITERATURE
 
 
 THE  EPIC  OF  IZDUBAR,  HYMNS,  TABLETS, 
@@ -14,7 +14,7 @@ EPIPHANIUS   WILSON,  A.M.
 
 
 Copyright,  1901, 
-By  the  colonial  PRESS. 
+BY  THE  COLONIAL  PRESS. 
 
 
 Mi 
@@ -24,19 +24,19 @@ SPECIAL   INTRODUCTION
 
 THE  great  nation  which  dwelt  in  the  seventh  century  be- 
 fore our  era  on  the  banks  of  Tigris  and  Euphrates 
-flourished  in  Hterature  as  well  as  in  the  plastic  arts,  and; 
+flourished  in  literature  as  well  as  in  the  plastic  arts,  and
 had  an  alphabet  of  its  own.  The  Assyrians  sometimes  wrote 
 with  a  sharp  reed,  for  a  pen,  upon  skins,  wooden  tablets,  or 
-papyrus  brought  from  Egypt.  In  this  case  they  used  cursive; 
+papyrus  brought  from  Egypt.  In  this  case  they  used  cursive
 letters  of  a  Phoenician  character.  But  when  they  wished  to 
-preserve  their  written  documents,  they  employed  clay  tablgts, 
+preserve  their  written  documents,  they  employed  clay  tablets,
 and  a  stylus  whose  bevelled  point  made  an  impression  like  a, 
-narrow  elongated  wedge,  or  arrow-head.  By  a  combination  o£ 
-these  wedges,  letters  and  words  were  formed  by  the  skilled  and* 
+narrow  elongated  wedge,  or  arrow-head.  By  a  combination  of
+these  wedges,  letters  and  words  were  formed  by  the  skilled  and
 practised  scribe,  who  would  thus  rapidly  turn  off  a  vast  amount 
 of  "  copy."  All  works  of  history,  poetry,  and  law  were  thus 
 written  in  the  cuneiform  or  old  Chaldean  characters,  and  on  a 
-substancF^TTrcircoiiTd~  withstand  the  ravages  of  time,  fire,  or 
+substance  which  could  withstand  the  ravages  of  time,  fire,  or
 water.  Hence  we  have  authentic  monuments  of  Assyrian  liter- 
 ature in  their  original  form,  unglossed,  unaltered,  and  un- 
 garbled,  and  in  this  respect  Chaldean  records  are  actually 
@@ -60,7 +60,7 @@ this  golden  age  of  letters  in  Babylonia  for  many  precious  and
 
 iv  SPECIAL   INTRODUCTION 
 
-imperishable  monuments.  It  is,  however,  only  within  recent^ 
+imperishable  monuments.  It  is,  however,  only  within  recent
 years  that  these  works  of  hoar  antiquity  have  passed  from  the 
 secluded  cell  of  the  specialist  and  have  come  within  reach  of 
 the  general  reader,  or  even  of  the  student  of  literature.  For 
@@ -153,7 +153,7 @@ to  a  close  he  said  to  his  mother,  "  I  have  dreamed  a  dream  ;  the
 vi  SPECIAL   INTRODUCTION 
 
 stars  rained  from  heaven  upon  me ;  then  a  creature,  fierce-faced 
-and  taloned  like  a  Hon,  rose  up  against  me,  and  I  smote  and 
+and  taloned  like  a  lion,  rose  up  against  me,  and  I  smote  and 
 slew  him." 
 
 The  dream  was  long  in  being  fulfilled,  but  at  last  Izdubar 
@@ -625,7 +625,7 @@ sadra  (the  Accadian  Noah)  rested.  inscriptions,  where  the  prods  were  s
 
 tioned    in    the    Izdubar    epic,    and    was  *  "  Pit-u-dal-ti,"  openers  of  the  gates, 
 
-probably  situated  at  the  base  of  Khar-  ^  "  Masari,"     guards     of     tlie     great 
+probably  situated  at  the  base  of  Khar-  ^  "  Masari,"     guards     of     the     great 
 
 sak-kur-ra,    now    caded    Mount    Elwcnd.  gates  of  the  city,  etc. 
 
@@ -773,7 +773,7 @@ For  aid,  protection,  blessing  through  the  day.
 
 8 "  Ellat-gula,"    the    queen    of    Erech,  rod,    following    the    suggestion    of    Mr. 
 
-tiie  capital   of   Babylonia.  George  Smith. 
+the  capital   of   Babylonia.  George  Smith. 
 
 ■'  "  Tur-tan-u  "  was  the  army  officer  " "  Khumbaba  "  was  the  giant 
 or  general  who  in  the  absence  of  the  Elainitic  king;  wliom  Izdubar  over- 
@@ -1827,7 +1827,7 @@ l"^'r^']''\'"^^^l'u^'^P^-        ,     »"  or  Chald.  I^nnn^  and   Svr.  Nnnn
 
 '"Mandrake,       the        love-plant.  "  love-plant  "  or  mandrake  ;    perhaps   also 
 
-'"Dud'im"    or    "dudaiin,"    D^XIIT.       originally  Irora  "du-du"  ("love'")  or  ex. 
+'"Dud'im"    or    "dudaiin,"    D^XIIT.       originally  from  "du-du"  ("love'")  or  ex. 
 
 
 IZDUBAR   FALLS    IN    LOVE   WITH    ISHTAR  25 
@@ -5866,7 +5866,7 @@ Of  their  great  monarch,  chanting  thus  his  praise.
 While  Erech's  band  their  liveliest  marches  play: 
 
 
-88  ISHTAR  AND   I2DUBAR 
+88  ISHTAR  AND   IZDUBAR 
 
 "  If  anyone  to  glory  can  lay  claim 
 Among  all  chiefs  and  warriors  of  fame. 
@@ -6384,7 +6384,7 @@ ISHTAR,  AND   HeA  GrANTS   HiS  PrAYER
 
 O  Hope !  thou  fleeting  pleasure  of  the  mind. 
 
-Forever  with  U3  stay,  our  hearts  to  bind! 
+Forever  with  us  stay,  our  hearts  to  bind! 
 
 We  cling  to  thee  till  life  has  fled  away ; 
 
@@ -6884,7 +6884,7 @@ The  heavenly  spirits  come  !  the  I-gi-gi !
 
 From  Heaven's  streams  and  mouths  and  plains  and  vales. 
 
-And  gods  by  thousands  on  the  w4ngs  of  gales. 
+And  gods  by  thousands  on  the  wings  of  gales. 
 
 The  spirits  of  the  earth,  An-un-na-ci, 
 
@@ -6912,7 +6912,7 @@ To  the  wild  moans  of  hours, — wailing  move ;
 
 FUNERAL   PROCESSION    OF   THE   GODS  105 
 
-Let  choirs  of  Heaven  and  of  tlie  earth  then  peal, 
+Let  choirs  of  Heaven  and  of  the  earth  then  peal, 
 All  living  beings  my  dread  sorrow  feel ! 
 Oh,  come  with  saddest,  weirdest  melody, 
 Join  earth  and  sky  in  one  sweet  threnody ! " 
@@ -7845,7 +7845,7 @@ The  Grief  of  the  King  Over  the  Loss  of  His  Seer,  and
 His  Prayer  to  the  Moon-God,  Who  Answers  His 
 Prayer  with  a  Vision 
 
-The  King  weeps  bitterly  w4th  flowing  tears 
+The  King  weeps  bitterly  with  flowing  tears 
 Above  his  seer  when  from  him  disappears 
 The  last  faint  breath ;  and  then  in  deepest  woe 
 He  cries :  "  And  through  that  desert  must  I  go  ? 
@@ -9056,7 +9056,7 @@ But  if  thou  goest,  may  they  see  thy  face
 Thou  seekest, — welcome  thee,  and  thy  heart  bless. 
 
 
-I40  ISHTAR  AXD   IZDUBAR 
+140  ISHTAR  AND   IZDUBAR 
 
 COLUMN    II 
 
@@ -9616,7 +9616,7 @@ Ca-ca-ma  u  Ca-ca-ma."
 
 star  of  the  West.  the   Babylonians,   reached   the  skies.     It 
 
-^  "  Nipur,"    tlie    city    from    which    Iz-  was  afterward  called  the  "  Tower  of  the 
+^  "  Nipur,"    the    city    from    which    Iz-  was  afterward  called  the  "  Tower  of  the 
 
 dubar  came.  Country  "     or     "  Tower     of     Babylon." 
 
@@ -10116,7 +10116,7 @@ lOo  CUNEIFORM  INSCRIPTIONS
 
 Tablet  II 
 
-The  burning  spirit  of  the  neck  wliich  seizes  tlie  man,  the  burn- 
+The  burning  spirit  of  the  neck  which  seizes  the  man,  the  burn-
 ing spirit  of  the  neck  which  seizes  the  man,  the  spirit  of  the  neck 
 which  works  evil,  the  creation  of  an  evil  spirit.  Spirit  of  heaven 
 remember,  spirit  of  earth  remember. 
@@ -10513,7 +10513,7 @@ the  mother  of  Nebo  as  well  as  of  Ninip.  '*  Cf.   Ps.   xcv.   4;    ci
 
 ANNALS    OF   ASSUR-NASIR-PAL  167 
 
-8  tlie  light  of  heaven  and  earth,  a  bold  leader  on  the  waters, 
+8  the  light  of  heaven  and  earth,  a  bold  leader  on  the  waters, 
 destroyer  of  them  that  hate  (him),  a  spoiler  (and)  Lord 
 of  the  disobedient,  dividing  enemies,  whose  name  in  the 
 speech  of  the  gods 
@@ -11787,7 +11787,7 @@ horses,  the  women  of  his  palace,  his  spoil,
 '  Literally,  "  from  the  face  of." 
 
 
-l88  CUiNEIFORM   INSCRIPTIONS 
+188  CUNEIFORM   INSCRIPTIONS 
 
 23  in  abundance  I  carried  off ;  the  city  I  pulled  down  and  razed  ; 
 ordinances  and  edicts  I  imposed  on  Zuhi ;  the  fear  of  my 
@@ -11984,7 +11984,7 @@ ANNALS    OF    ASSUR-NASIR-PAL
 and  warlike  eny;ines  of  the  officer  of  the  son  (jf  Bakhiani  I 
 added  to  my  magazines ; 
 
-5g  I  menaced  the  land  of  Anili :  the  trihutc  of  Hu-immi  of 
+59  I  menaced  the  land  of  Anili :  the  tribute  of  Hu-immi  of 
 Nilaya,  swift  war  chariots,  horses,  silver,  gold,  tin,"'  copper^ 
 
 60  Icaiiii  of  coi)]:)er,  oxen,  sheep,  horses,  1  received ;  the  chariots 
@@ -12142,7 +12142,7 @@ of  the  Moon  and  Sun  the  exalted  gods.
 of  it  throughout:  I  cut  down  beams  for  bridges  of  mchri 
 trees,  and  carried  them  to  Nineveh  ;  (and) 
 
-92  to  Istar  Lady  of  Nineveh  (on)  my  knees  I  knelt.''  In  tlie 
+92  to  Istar  Lady  of  Nineveh  (on)  my  knees  I  knelt.''  In  the 
 eponym  of  Samas-nuri  '^  in  the  honor  of  the  great  Lord 
 Assur  my  Lord  on  the  20th  of  April  ^ 
 
@@ -12847,7 +12847,7 @@ wife  of  the  god  Hea.  tides,"    etc.      We    see   that   the    Babylo-
 
 p.  54-  tences   "  around   the   head  "   and   others 
 
-i<^  Similar    to    these    were    the    phylac-  "  right  and   left  of  the  threshold  of  tlie 
+i<^  Similar    to    these    were    the    phylac-  "  right  and   left  of  the  threshold  of  the 
 
 teries    of    the    Jews,    which    were    con-  door." 
 
@@ -12927,7 +12927,7 @@ conclusion  of  the  story  is  broken  off.
 P-  SS.  Asia,"  vol.  iv.   pi.   5. 
 
 
-2o6  CUNElFORxM   INSCRIPTIONS 
+206  CUNEIFORM   INSCRIPTIONS 
 
 ANCIENT   BABYLONIAN   CHARMS 
 Translated  by  Rev.  A.  H.  Sayce,  M.A. 
@@ -13064,7 +13064,7 @@ He  was  recarded  as  the  son  of  Hea.  *  The   sorcerer.
 *  The    verbs    throughout    are    in    the  *  The  sorcerer. 
 
 
-2o8  CUNEIFORM   IXSCRirTiOXS 
+208  CUNEIFORM   INSCRIPTIONS 
 
 35  His  property  (and)  ground  he  shall  not  take. 
 
@@ -14965,7 +14965,7 @@ his  city  I  shut  up.    His  tribute
 BLACK   OBELISK    OF   SHALMANESER  241 
 
 54  to  a  larG:e  amount  I  received.  In  my  sixth  year  to  the  cities 
-on  tlie  banks  of  the  river  Balikhi 
+on  the  banks  of  the  river  Balikhi 
 
 FACE  D 
 
@@ -16741,7 +16741,7 @@ COLUMN     X
 
 6,  7  in  its  midst  abundance  may  it  acquire ! 
 
-8  May  it3  memorials  be  augmented ! 
+8  May  its  memorials  be  augmented ! 
 
 9  May  it  receive  within  itself 
 10  the  abundant  tribute 
@@ -19502,27 +19502,27 @@ M
 t9 
 
 
-THE  WORLD'S^ 
+THE  WORLD'S 
 GREAT  CLASSICS 
 
 
 COMMITTEE 
 
 
-JvsTiN  McCarthy 
-Richard  Henry5toddard 
-Arthvr  Richmond  Marsh.  AB. 
-Pavlvan  Dyke,D.D. 
+Justin  McCarthy 
+Richard  Henry  Stoddard 
+Arthur  Richmond  Marsh,  A.B. 
+Paul  van  Dyke,  D.D. 
 Albert  Ellery  Bergh 
 
 
-ILLV5TRATED  WITH  NEARLY  THREE-  yp^ 
+ILLUSTRATED  WITH  NEARLY  THREE-
 
-HVNDREDPHOTOCRAVVIiES-ETCH-  SS/ 
+HUNDRED  PHOTOGRAVURES—ETCH- 
 
-INCS  COLORED-PLATES  ANDFVLL  ^ 
+INGS,  COLORED  PLATES,  AND  FULL-PAGE
 
-n/\ru.  iii"-.n-rr>  a  \t<:  .r\f^.mv  at.  a.\  /TMr\n<i 
+ILLUSTRATIONS
 
 
 Clarence  Cook  •  Art  Editor. 
@@ -19531,9 +19531,9 @@ Clarence  Cook  •  Art  Editor.
 f 
 
 
-TH  E  •  COLONIAL- PR.E55 
+THE  COLONIAL  PRESS 
 
-'  NEW-YORK-         •  LO  N  D  O  N 
+NEW  YORK  •  LONDON 
 
 
 0,}rc^(?^fr?^rn^rr^^.?^^(:^^rri-:\rr^fa^(?f^rr^rcfi\rr^^^ 
@@ -19679,7 +19679,7 @@ vi  SPECIAL   INTRODUCTION
 When,  during  the  Persian  domination,  Armenia  became  en- 
 tirely shut  off  from  the  avenues  of  Greek  culture,  and  was 
 left  unaided  in  her  struggle  for  national  existence,  the  light 
-of  Hterature  again  sank  to  a  feeble  gleam.  There  was,  indeed, 
+of  literature  again  sank  to  a  feeble  gleam.  There  was,  indeed, 
 a  faint  revival  in  the  tenth  century,  and  again  a  second  and 
 a  stronger  renaissance  in  the  twelfth  under  the  impulse  given 
 by  Nerses,  and  by  his  namesake,  the  Patriarch.  But  this  re- 
@@ -23219,7 +23219,7 @@ He  thinks  to  bring  David  hither  by  cunning !  "
 
 They  set  upon  the  singer,  dragged  him  to  the  valley,  and 
 
-^  "  Emir,"  in  tlie  eyes  of  the  orientals,  *  "  Chandud  "     is    a    woman's    name, 
+^  "  Emir,"  in  the  eyes  of  the  orientals,  *  "  Chandud  "     is    a    woman's    name, 
 
 is   almost    the    same  as   "  king."  "  Chanum  "   means   "  lady." 
 
@@ -23755,9 +23755,9 @@ THE  RUINED  FAMILY
 
 ACT  I 
 
-Well-fnrnisJicd  room  ivith  open  door  in  centre  and  ante- 
-room behind.  To  the  left  in  foreground  a  zvindow  looking 
-out  upon  a  garden.  To  the  right  a  sofa,  in  front  of  ujhich  is 
+Well-furnished  room  with  open  door  in  centre  and  ante-
+room behind.  To  the  left  in  foreground  a  window  looking
+out  upon  a  garden.  To  the  right  a  sofa,  in  front  of  which  is 
 a  table.  To  the  left  a  tachta  ^  with  a  ketscha  ^  and  several 
 mutakas.^    A  side  door. 
 
@@ -23766,7 +23766,7 @@ Scene  I
 Salome.     Chacho. 
 
 Salome  [from  back  of  stage  \.  You're  welcome.  Come, 
-come,  1  beg  of  you.  Dear  aunt,  how  can  I  thank  30U 
+come,  I  beg  of  you.  Dear  aunt,  how  can  I  thank  you
 for  taking  the  trouble  to  come  here ! 
 
 Chacho  [covered  by  a  tscliadra*  enters  from  the  right  of  the 
@@ -25817,7 +25817,7 @@ from  the  windozv].  She  is  coming.  Wait,  you  insolent
 thing!  I  will  give  you  a  setting-out  such  as  no  one  has 
 ever  given  you  before! 
 
-Salome  [dressed  in  the  latest  fashion,  ivith  a  parasol  in  her 
+Salome  [dressed  in  the  latest  fashion,  with  a  parasol  in  her 
 
 
 I20  ARMENIAN    LITERATURE 
@@ -26280,7 +26280,7 @@ ACT  THIRD
 
 Scene  I — Ossep's  House 
 
-Nato  [stands  before  the  uiirror  elegantly  dressed,  and,  zvhile 
+Nato  [stands  before  the  mirror  elegantly  dressed,  and,  while
 she  pri)iks,  Jiiiiiis  a  European  melody.  Then  she  draws 
 out  of  her  pocket  a  little  photograph  and  speaks  to  herself 
 zi'liilc  looking  in  the  mirror].  O  my  treasure!  my  treas- 
@@ -26289,13 +26289,13 @@ cher!  Come;  we  will  dance.  [Dances  around  the  table.]
 Tra-la-la,  Tra-la-la.  [Sits  down  at  the  right.]  Alexander ; 
 my  Alexander;  dear  Alexander!  Yes,  you  are  really  an 
 angel.  Why  are  you  so  handsome  ?  You  have  black  eyes 
-and  I  also  have  l3lack.  Then  arched  eyebrows  just  like 
-me.  [Touches  her  eyebrozvs.]  A  pretty  little  mustache, 
+and  I  also  have  black.  Then  arched  eyebrows  just  like
+me.  [Touches  her  eyebrows.]  A  pretty  little  mustache, 
 which  T  lack.  Which  of  us  is  more  beautiful,  I  or  you? 
 You  are  handsomest ;  no,  I  am  handsomest  [springing  up]. 
 We  will  see  at  once. 
 
-[Looks  at  herself  in  the  uiirror  and  then  at  the  photo- 
+[Looks  at  herself  in  the  mirror  and  then  at  the  photo-
 graph.    Enter  Alexander  at  the  middle  door. 
 
 Nato   [ivithout  noticing  Alexander].     No,  you  are  the  more 
@@ -26353,7 +26353,7 @@ Alexander.     Do  you  like  to  visit  the  Casino?
 
 Nato  [laying  her  hand  on  his  shoulder].  Who  doesn't  like  to 
 visit  it?  Is  there  another  place  where  one  can  amuse  one's 
-self  better?  The  beautiful  long  salon!  the  boudoir!  tlie 
+self  better?  The  beautiful  long  salon!  the  boudoir!  the 
 beautiful  music  and  the  rich  costumes !  How  beautiful 
 they  all  are!  [Embracing  Alexander.]  We  will  dance 
 together,  and  when  we  are  tired,  we  will  go  into  the  mirror- 
