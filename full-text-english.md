@@ -14,143 +14,145 @@
 
 ## Table of Contents.
 
+#### Special Introduction.
+
 ### The Epic of Ishtar and Izdubar:
 
-#### The Invocation
+#### The Invocation.
 
-#### The Fall of Erech
+#### The Fall of Erech.
 
-#### The Rescue of Erech
+#### The Rescue of Erech.
 
-#### Coronation of Izdubar
+#### Coronation of Izdubar.
 
-#### Ishtar and Her Maids
+#### Ishtar and Her Maids.
 
-#### Izdubar Falls in Love with Ishtar
+#### Izdubar Falls in Love with Ishtar.
 
-#### Ishtar's Midnight Courtship
+#### Ishtar's Midnight Courtship.
 
-#### The King's Second Dream
+#### The King's Second Dream.
 
-#### Izdubar Relates His Second Dream
+#### Izdubar Relates His Second Dream.
 
-#### Heabani, the Hermit Seer
+#### Heabani, the Hermit Seer.
 
-#### Expedition of Zaidu
+#### Expedition of Zaidu.
 
-#### Heabani Resolves to Return
+#### Heabani Resolves to Return.
 
-#### Heabani's Wisdom
+#### Heabani's Wisdom.
 
-#### In Praise of Izdubar and Heabani
+#### In Praise of Izdubar and Heabani.
 
-#### Zaidu's Return
+#### Zaidu's Return.
 
-#### The Two Maidens Entice the Seer
+#### The Two Maidens Entice the Seer.
 
-#### Festival in Honor of Heabani
+#### Festival in Honor of Heabani.
 
-#### Izdubar Slays the Midannu
+#### Izdubar Slays the Midannu.
 
-#### Annual Sale of the Maidens of Babylon
+#### Annual Sale of the Maidens of Babylon.
 
-#### Council in the Palace
+#### Council in the Palace.
 
-#### The King at the Shrine of Ishtar
+#### The King at the Shrine of Ishtar.
 
-#### The King at the Temple of Samas
+#### The King at the Temple of Samas.
 
-#### Expedition against Khumbaba
+#### Expedition against Khumbaba.
 
-#### Conflict of the Rival Giants
+#### Conflict of the Rival Giants.
 
-#### Coronation of Izdubar
+#### Coronation of Izdubar.
 
-#### The King's Answer and Ishtar's Rage
+#### The King's Answer and Ishtar's Rage.
 
-#### Ishtar Complains to Anu
+#### Ishtar Complains to Anu.
 
-#### Fight with the Winged Bull of Anu
+#### Fight with the Winged Bull of Anu.
 
-#### The Curse of Ishtar
+#### The Curse of Ishtar.
 
-#### Ishtar Weaves a Spell Over Izdubar
+#### Ishtar Weaves a Spell Over Izdubar.
 
-#### Ishtar's Descent to Hades
+#### Ishtar's Descent to Hades.
 
-#### Effect of Ishtar's Imprisonment in Hades
+#### Effect of Ishtar's Imprisonment in Hades.
 
-#### Papsukul Intercedes for Ishtar
+#### Papsukul Intercedes for Ishtar.
 
-#### Release of Ishtar
+#### Release of Ishtar.
 
-#### Tammuz Restored to Life
+#### Tammuz Restored to Life.
 
-#### Escape of Tammuz from Hades
+#### Escape of Tammuz from Hades.
 
-#### The King and the Seer Converse
+#### The King and the Seer Converse.
 
-#### Contest with the Dragons
+#### Contest with the Dragons.
 
-#### Heabani Reveals Visions to the King
+#### Heabani Reveals Visions to the King.
 
-#### Grief of the King Over Heabani
+#### Grief of the King Over Heabani.
 
-#### Burial of the Seer
+#### Burial of the Seer.
 
-#### Izdubar Enters Hades
+#### Izdubar Enters Hades.
 
-#### The King's Adventure
+#### The King's Adventure.
 
-#### The King Meets Ur-hea
+#### The King Meets Ur-hea.
 
-#### Mua Welcomes Izdubar
+#### Mua Welcomes Izdubar.
 
-#### The King Becomes Immortal
+#### The King Becomes Immortal.
 
-#### Izdubar Falls in Love with Mua
+#### Izdubar Falls in Love with Mua.
 
-#### Mua's Answer
+#### Mua's Answer.
 
 ### Tablets and Cuneiform Inscriptions.
 
-#### Babylonian Exorcisms
+#### Babylonian Exorcisms.
 
-#### Accadian Hymn to Istar
+#### Accadian Hymn to Istar.
 
-#### Annals of Assur-Nasir-Pal
+#### Annals of Assur-Nasir-Pal.
 
-#### Assyrian Sacred Poetry
+#### Assyrian Sacred Poetry.
 
-#### Assyrian Talismans and Exorcisms
+#### Assyrian Talismans and Exorcisms.
 
-#### Ancient Babylonian Charms
+#### Ancient Babylonian Charms.
 
-#### Inscription of Tiglath Pileser 1
+#### Inscription of Tiglath Pileser 1.
 
-#### The Revolt in Heaven
+#### The Revolt in Heaven.
 
-#### The Legend of the Tower of Babel
+#### The Legend of the Tower of Babel.
 
-#### An Accadian Penitential Psalm
+#### An Accadian Penitential Psalm.
 
-#### The Black Obelisk of Shalmaneser 2
+#### The Black Obelisk of Shalmaneser 2.
 
-#### Inscription of Nebuchadnezzar
+#### Inscription of Nebuchadnezzar.
 
-#### Accadian Poem on the Seven Evil Spirits
+#### Accadian Poem on the Seven Evil Spirits.
 
-#### Chaldean Hymns to the Sun
+#### Chaldean Hymns to the Sun.
 
-#### Two Accadian Hymns
+#### Two Accadian Hymns.
 
-#### Accadian Proverbs and Songs
+#### Accadian Proverbs and Songs.
 
-#### Babylonian Public Documents
+#### Babylonian Public Documents.
 
-#### Babylonian Private Contracts
+#### Babylonian Private Contracts.
 
-#### Great Inscription of Khorsabad
+#### Great Inscription of Khorsabad.
 
 ## Illustrations.
 
