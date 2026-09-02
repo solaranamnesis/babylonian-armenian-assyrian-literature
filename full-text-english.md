@@ -213,7 +213,7 @@ The One who in that awful chaos trod
 And woke the Elements by Law of Love  
 To teeming worlds in harmony to move.  
 From chaos thou hast led us by thy hand,  
-*Thus spoke to man upon that budding land:  
+* Thus spoke to man upon that budding land:  
 "The Queen of Heaven, of the dawn am I,  
 The goddess of all wide immensity,  
 For thee I open wide the golden gate  
