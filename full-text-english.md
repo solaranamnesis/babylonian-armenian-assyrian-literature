@@ -1,292 +1,306 @@
-# BABYLONIAN AND ASSYRIAN LITERATURE
+# Babylonian and Assyrian Literature
 
-### THE EPIC OF IZDUBAR, HYMNS, TABLETS, AND CUNEIFORM INSCRIPTIONS
+### The Epic of Izdubar, Hymns, Tablets, and Cuneiform Inscriptions
 
-WITH A SPECIAL INTRODUCTION BY
-EPIPHANIUS WILSON, A.M.
+#### With a special introduction by Epiphanius Wilson, A. M.
 
-Copyright, 1901,
-BY THE COLONIAL PRESS.
+#### Revised Edition.
+
+## New York, 1901.
+
+### The Colonial Press.
 
 ---
 
-## SPECIAL INTRODUCTION
+## Table of Contents.
 
-THE great nation which dwelt in the seventh century before our era on the banks of Tigris and Euphrates flourished in literature as well as in the plastic arts, and had an alphabet of its own. The Assyrians sometimes wrote with a sharp reed, for a pen, upon skins, wooden tablets, or papyrus brought from Egypt. In this case they used cursive letters of a Phoenician character. But when they wished to preserve their written documents, they employed clay tablets, and a stylus whose bevelled point made an impression like a narrow elongated wedge, or arrow-head. By a combination of these wedges, letters and words were formed by the skilled and practised scribe, who would thus rapidly turn off a vast amount of "copy." All works of history, poetry, and law were thus written in the cuneiform or old Chaldean characters, and on a substance which could withstand the ravages of time, fire, or water. Hence we have authentic monuments of Assyrian literature in their original form, unglossed, unaltered, and ungarbled, and in this respect Chaldean records are actually superior to those of the Greeks, the Hebrews, or the Romans.
+### The Epic of Ishtar and Izdubar:
 
-The literature of the Chaldeans is very varied in its forms. The hymns to the gods form an important department, and were doubtless employed in public worship. They are by no means lacking in sublimity of expression, and while quite unmetrical they are proportioned and emphasized, like Hebrew poetry, by means of parallelism. In other respects they resemble the productions of Jewish psalmists, and yet they date as far back as the third millennium before Christ. They seem to have been transcribed in the shape in which we at present have them in the reign of Assurbanipal, who was a great patron of letters, and in whose reign libraries were formed in the principal cities. The Assyrian renaissance of the seventeenth century B.C. witnessed great activity among scribes and book collectors: modern scholars are deeply indebted to this golden age of letters in Babylonia for many precious and imperishable monuments. It is, however, only within recent years that these works of hoar antiquity have passed from the secluded cell of the specialist and have come within reach of the general reader, or even of the student of literature. For many centuries the cuneiform writing was literally a dead letter to the learned world. The clue to the understanding of this alphabet was originally discovered in 1850 by Colonel Rawlinson, and described by him in a paper read before the Royal Society. Hence the knowledge of Assyrian literature is, so far as Europe is concerned, scarcely more than half a century old.
+#### The Invocation
 
-Among the most valuable of historic records to be found among the monuments of any nation are inscriptions, set upon public buildings, in palaces, and in temples. The Greek and Latin inscriptions discovered at various points on the shores of the Mediterranean have been of priceless value in determining certain questions of philology, as well as in throwing new light on the events of history. Many secrets of language have been revealed, many perplexities of history disentangled, by the words engraven on stone or metal, which the scholar discovers amid the dust of ruined temples, or on the cippus of a tomb. The form of one Greek letter, perhaps even its existence, would never have been guessed but for its discovery in an inscription. If inscriptions are of the highest critical importance and historic interest, in languages which are represented by a voluminous and familiar literature, how much more precious must they be when they record what happened in the remotest dawn of history, surviving among the ruins of a vast empire whose people have vanished from the face of the earth?
+#### The Fall of Erech
 
-Hence the cuneiform inscriptions are of the utmost interest and value, and present the greatest possible attractions to the curious and intelligent reader. They record the deeds and conquests of mighty kings, the Napoleons and Hannibals of primeval time. They throw a vivid light on the splendid sculptures of Nineveh; they give a new interest to the pictures and carvings that describe the building of cities, the marching to war, the battle, by sea and land, of great monarchs whose horse and foot were as multitudinous as the locusts that in Eastern literature are compared to them. Lovers of the Bible will find in the Assyrian inscriptions many confirmations of Scripture history, as well as many parallels to the account of the primitive world in Genesis, and none can give even a cursory glance at these famous remains without feeling his mental horizon widened. We are carried by this writing on the walls of Assyrian towns far beyond the little world of the recent centuries; we pass, as almost modern, the day when Julius Caesar struggled in the surf of Kent against the painted savages of Britain. Nay, the birth of Romulus and Remus is a recent event in comparison with records of incidents in Assyrian national life, which occurred not only before Moses lay cradled on the waters of an Egyptian canal, but before Egypt had a single temple or pyramid, three millenniums before the very dawn of history in the valley of the Nile.
+#### The Rescue of Erech
+
+#### Coronation of Izdubar
+
+#### Ishtar and Her Maids
+
+#### Izdubar Falls in Love with Ishtar
+
+#### Ishtar's Midnight Courtship
+
+#### The King's Second Dream
+
+#### Izdubar Relates His Second Dream
+
+#### Heabani, the Hermit Seer
+
+#### Expedition of Zaidu
+
+#### Heabani Resolves to Return
+
+#### Heabani's Wisdom
+
+#### In Praise of Izdubar and Heabani
+
+#### Zaidu's Return
+
+#### The Two Maidens Entice the Seer
+
+#### Festival in Honor of Heabani
+
+#### Izdubar Slays the Midannu
+
+#### Annual Sale of the Maidens of Babylon
+
+#### Council in the Palace
+
+#### The King at the Shrine of Ishtar
+
+#### The King at the Temple of Samas
+
+#### Expedition against Khumbaba
+
+#### Conflict of the Rival Giants
+
+#### Coronation of Izdubar
+
+#### The King's Answer and Ishtar's Rage
+
+#### Ishtar Complains to Anu
+
+#### Fight with the Winged Bull of Anu
+
+#### The Curse of Ishtar
+
+#### Ishtar Weaves a Spell Over Izdubar
+
+#### Ishtar's Descent to Hades
+
+#### Effect of Ishtar's Imprisonment in Hades
+
+#### Papsukul Intercedes for Ishtar
+
+#### Release of Ishtar
+
+#### Tammuz Restored to Life
+
+#### Escape of Tammuz from Hades
+
+#### The King and the Seer Converse
+
+#### Contest with the Dragons
+
+#### Heabani Reveals Visions to the King
+
+#### Grief of the King Over Heabani
+
+#### Burial of the Seer
+
+#### Izdubar Enters Hades
+
+#### The King's Adventure
+
+#### The King Meets Ur-hea
+
+#### Mua Welcomes Izdubar
+
+#### The King Becomes Immortal
+
+#### Izdubar Falls in Love with Mua
+
+#### Mua's Answer
+
+### Tablets and Cuneiform Inscriptions.
+
+#### Babylonian Exorcisms
+
+#### Accadian Hymn to Istar
+
+#### Annals of Assur-Nasir-Pal
+
+#### Assyrian Sacred Poetry
+
+#### Assyrian Talismans and Exorcisms
+
+#### Ancient Babylonian Charms
+
+#### Inscription of Tiglath Pileser 1
+
+#### The Revolt in Heaven
+
+#### The Legend of the Tower of Babel
+
+#### An Accadian Penitential Psalm
+
+#### The Black Obelisk of Shalmaneser 2
+
+#### Inscription of Nebuchadnezzar
+
+#### Accadian Poem on the Seven Evil Spirits
+
+#### Chaldean Hymns to the Sun
+
+#### Two Accadian Hymns
+
+#### Accadian Proverbs and Songs
+
+#### Babylonian Public Documents
+
+#### Babylonian Private Contracts
+
+#### Great Inscription of Khorsabad
+
+## Illustrations.
+
+[**Babylonian Marriage Market.** Photogravure from the original painting by Edwin Long. Frontispiece.]()
+
+[**Pegasus, the Winged Horse.** Photo-engraving from the original group by M. Lequesne.]()
+
+[**Page from the Kan-djono.** Fac-simile manuscript of the Sixteenth Century.]()
+
+---
+
+## Special Introduction
+
+The great nation which dwelt in the seventh century before our era on the banks of Tigris and Euphrates flourished in literature as well as in the plastic arts, and had an alphabet of its own. The Assyrians sometimes wrote with a sharp reed, for a pen, upon skins, wooden tablets, or papyrus brought from Egypt. In this case they used cursive letters of a Phœnician character. But when they wished to preserve their written documents, they employed clay tablets, and a stylus whose bevelled point made an impression like a narrow elongated wedge, or arrow-head. By a combination of these wedges, letters and words were formed by the skilled and practised scribe, who would thus rapidly turn off a vast amount of "copy." All works of history, poetry, and law were thus written in the cuneiform or old Chaldean characters, and on a substance which could withstand the ravages of time, fire, or water. Hence we have authentic monuments of Assyrian literature in their original form, unglossed, unaltered, and ungarbled, and in this respect Chaldean records are actually superior to those of the Greeks, the Hebrews, or the Romans.
+
+The literature of the Chaldeans is very varied in its forms. The hymns to the gods form an important department, and were doubtless employed in public worship. They are by no means lacking in sublimity of expression, and while quite unmetrical they are proportioned and emphasized, like Hebrew poetry, by means of parallelism. In other respects they resemble the productions of Jewish psalmists, and yet they date as far back as the third millennium before Christ. They seem to have been transcribed in the shape in which we at present have them in the reign of Assurbanipal, who was a great patron of letters, and in whose reign libraries were formed in the principal cities. The Assyrian renaissance of the seventeenth century BCE witnessed great activity among scribes and book collectors: modern scholars are deeply indebted to this golden age of letters in Babylonia for many precious and imperishable monuments. It is, however, only within recent years that these works of hoar antiquity have passed from the secluded cell of the specialist and have come within reach of the general reader, or even of the student of literature. For many centuries the cuneiform writing was literally a dead letter to the learned world. The clue to the understanding of this alphabet was originally discovered in 1850 by Colonel Rawlinson, and described by him in a paper read before the Royal Society. Hence the knowledge of Assyrian literature is, so far as Europe is concerned, scarcely more than half a century old.
+
+Among the most valuable of historic records to be found among the monuments of any nation are inscriptions, set up on public buildings, in palaces, and in temples. The Greek and Latin inscriptions discovered at various points on the shores of the Mediterranean have been of priceless value in determining certain questions of philology, as well as in throwing new light on the events of history. Many secrets of language have been revealed, many perplexities of history disentangled, by the words engraven on stone or metal, which the scholar discovers amid the dust of ruined temples, or on the _cippus_ of a tomb. The form of one Greek letter, perhaps even its existence, would never have been guessed but for its discovery in an inscription. If inscriptions are of the highest critical importance and historic interest, in languages which are represented by a voluminous and familiar literature, how much more precious must they be when they record what happened in the remotest dawn of history, surviving among the ruins of a vast empire whose people have vanished from the face of the earth?
+
+Hence the cuneiform inscriptions are of the utmost interest and value, and present the greatest possible attractions to the curious and intelligent reader. They record the deeds and conquests of mighty kings, the Napoleons and Hannibals of primeval time. They throw a vivid light on the splendid sculptures of Nineveh; they give a new interest to the pictures and carvings that describe the building of cities, the marching to war, the battle, by sea and land, of great monarchs whose horse and foot were as multitudinous as the locusts that in Eastern literature are compared to them. Lovers of the Bible will find in the Assyrian inscriptions many confirmations of Scripture history, as well as many parallels to the account of the primitive world in Genesis, and none can give even a cursory glance at these famous remains without feeling his mental horizon widened. We are carried by this writing on the walls of Assyrian towns far beyond the little world of the recent centuries; we pass, as almost modern, the day when Julius Cæsar struggled in the surf of Kent against the painted [peoples] of Britain. Nay, the birth of Romulus and Remus is a recent event in comparison with records of incidents in Assyrian national life, which occurred not only before Moses lay cradled on the waters of an Egyptian canal, but before Egypt had a single temple or pyramid, three millenniums before the very dawn of history in the valley of the Nile.
 
 But the interest of Assyrian Literature is not confined to hymns, or even to inscriptions. A nameless poet has left in the imperishable tablets of a Babylonian library an epic poem of great power and beauty. This is the Epic of Izdubar.
 
-At Dur-Sargina, the city where stood the palace of Assyrian monarchs three thousand years ago, were two gigantic human figures, standing between the winged bulls, carved in high relief, at the entrance of the royal residence. These human figures are exactly alike, and represent the same personage — a Colossus with swelling thews, and dressed in a robe of dignity. He strangles a lion by pressing it with brawny arm against his side, as if it were no more than a cat. This figure is that of Izdubar, or Gisdubar, the great central character of Assyrian poetry and sculpture, the theme of minstrels, the typical hero of his land, the favored of the gods. What is called the Epic of Izdubar relates the exploits of this hero, who was born the son of a king in Ourouk of Chaldea. His father was dethroned by the Elamites, and Izdubar was driven into the wilderness and became a mighty hunter. In the half-peopled earth, so lately created, wild beasts had multiplied and threatened the extermination of mankind. The hunter found himself at war with monsters more formidable than even the lion or the wild bull. There were half-human scorpions, bulls with the head of man, fierce satyrs and winged griffins. Deadly war did Izdubar wage with them, till as his period of exile drew near to a close he said to his mother, "I have dreamed a dream; the stars rained from heaven upon me; then a creature, fierce-faced and taloned like a lion, rose up against me, and I smote and slew him."
+At Dur-Sargina, the city where stood the palace of Assyrian monarchs three thousand years ago, were two gigantic human figures, standing between the winged bulls, carved in high relief, at the entrance of the royal residence. These human figures are exactly alike, and represent the same personage --- a Colossus with swelling thews, and dressed in a robe of dignity. He strangles a lion by pressing it with brawny arm against his side, as if it were no more than a cat. This figure is that of Izdubar, or Gisdubar, the great central character of Assyrian poetry and sculpture, the theme of minstrels, the typical hero of his land, the favored of the gods. What is called the Epic of Izdubar relates the exploits of this hero, who was born the son of a king in Ourouk of Chaldea. His father was dethroned by the Elamites, and Izdubar was driven into the wilderness and became a mighty hunter. In the half-peopled earth, so lately created, wild beasts had multiplied and threatened the extermination of mankind. The hunter found himself at war with monsters more formidable than even the lion or the wild bull. There were half-human scorpions, bulls with the head of man, fierce satyrs and winged griffins. Deadly war did Izdubar wage with them, till as his period of exile drew near to a close he said to his mother, "I have dreamed a dream; the stars rained from heaven upon me; then a creature, fierce-faced and taloned like a lion, rose up against me, and I smote and slew him."
 
-The dream was long in being fulfilled, but at last Izdubar was told of a monstrous jinn, whose name was Heabani; his head was human but horned; and he had the legs and tail of a bull, yet was he wisest of all upon earth. Enticing him from his cave by sending two fair women to the entrance, Izdubar took him captive and led him to Ourouk, where the jinn married one of the women whose charms had allured him, and became henceforth the well-loved servant of Izdubar. Then Izdubar slew the Elamite who had dethroned his father, and put the royal diadem on his own head. And behold the goddess Ishtar (Ashtaroth) cast her eyes upon the hero and wished to be his wife, but he rejected her with scorn, reminding her of the fate of Tammuz, and of Alala the Eagle, and of the shepherd Taboulon — all her husbands, and all dead before their time. Thus, as the wrath of Juno pursued Paris, so the hatred of this slighted goddess attends Izdubar through many adventures. The last plague that torments him is leprosy, of which he is to be cured by Khasisadra, son of Oubaratonton, last of the ten primeval kings of Chaldea. Khasisadra, while still living, had been transported to Paradise, where he yet abides. Here he is found by Izdubar, who listens to his account of the Deluge, and learns from him the remedy for his disease. The afflicted hero is destined, after being cured, to pass, without death, into the company of the gods, and there to enjoy immortality. With this promise the work concludes.
+The dream was long in being fulfilled, but at last Izdubar was told of a monstrous jinn, whose name was Heabani; his head was human but horned; and he had the legs and tail of a bull, yet was he wisest of all upon earth. Enticing him from his cave by sending two fair women to the entrance, Izdubar took him captive and led him to Ourouk, where the jinn married one of the women whose charms had allured him, and became henceforth the well-loved servant of Izdubar. Then Izdubar slew the Elamite who had dethroned his father, and put the royal diadem on his own head. And behold the goddess Ishtar (Ashtaroth) cast her eyes upon the hero and wished to be his wife, but he rejected her with scorn, reminding her of the fate of Tammuz, and of Alala the Eagle, and of the shepherd Taboulon --- all her husbands, and all dead before their time. Thus, as the wrath of Juno pursued Paris, so the hatred of this slighted goddess attends Izdubar through many adventures. The last plague that torments him is leprosy, of which he is to be cured by Khasisadra, son of Oubaratonton, last of the ten primeval kings of Chaldea. Khasisadra, while still living, had been transported to Paradise, where he yet abides. Here he is found by Izdubar, who listens to his account of the Deluge, and learns from him the remedy for his disease. The afflicted hero is destined, after being cured, to pass, without death, into the company of the gods, and there to enjoy immortality. With this promise the work concludes.
 
-The great poem of Izdubar has but recently been known to European scholars, having been discovered in 1871 by the eminent Assyriologist, Mr. George Smith. It was probably written about 2000 B.C., though the extant edition, which came from the library of King Assurbanipal in the palace at Dur-Sargina, must bear the date of 600 B.C. The hero is supposed to be a solar personification, and the epic is interesting to modern writers not only on account of its description of the Deluge, but also for the pomp and dignity of its style, and for its noble delineation of heroic character.
+The great poem of Izdubar has but recently been known to European scholars, having been discovered in 1871 by the eminent Assyriologist, Mr. George Smith. It was probably written about 2000 BCE, though the extant edition, which came from the library of King Assurbanipal in the palace at Dur-Sargina, must bear the date of 600 BCE. The hero is supposed to be a solar personification, and the epic is interesting to modern writers not only on account of its description of the Deluge, but also for the pomp and dignity of its style, and for its noble delineation of heroic character.
 
----
-
-## CONTENTS
-
-### The Epic of Ishtar and Izdubar
-
-| Section | Page |
-| :--- | :--- |
-| The Invocation | 3 |
-| The Fall of Erech | 5 |
-| The Rescue of Erech | 13 |
-| Coronation of Izdubar | 17 |
-| Ishtar and Her Maids | 20 |
-| Izdubar Falls in Love with Ishtar | 23 |
-| Ishtar's Midnight Courtship | 26 |
-| The King's Second Dream | 29 |
-| Izdubar Relates His Second Dream | 32 |
-| Heabani, the Hermit Seer | 36 |
-| Expedition of Zaidu | 38 |
-| Heabani Resolves to Return | 40 |
-| Heabani's Wisdom | 42 |
-| In Praise of Izdubar and Heabani | 44 |
-| Zaidu's Return | 46 |
-| The Two Maidens Entice the Seer | 48 |
-| Festival in Honor of Heabani | 50 |
-| Izdubar Slays the Midannu | 52 |
-| Annual Sale of the Maidens of Babylon | 53 |
-| Council in the Palace | 61 |
-| The King at the Shrine of Ishtar | 65 |
-| The King at the Temple of Samas | 70 |
-| Expedition against Khumbaba | 72 |
-| Conflict of the Rival Giants | 75 |
-| Coronation of Izdubar | 77 |
-| The King's Answer and Ishtar's Rage | 81 |
-| Ishtar Complains to Anu | 83 |
-| Fight with the Winged Bull of Anu | 84 |
-| The Curse of Ishtar | 86 |
-| Ishtar Weaves a Spell Over Izdubar | 89 |
-| Ishtar's Descent to Hades | 91 |
-| Effect of Ishtar's Imprisonment in Hades | 93 |
-| Papsukul Intercedes for Ishtar | 95 |
-| Release of Ishtar | 98 |
-| Tammuz Restored to Life | 100 |
-| Escape of Tammuz from Hades | 103 |
-| The King and the Seer Converse | 108 |
-| Contest with the Dragons | 110 |
-| Heabani Reveals Visions to the King | 115 |
-| Grief of the King Over Heabani | 120 |
-| Burial of the Seer | 123 |
-| Izdubar Enters Hades | 126 |
-| The King's Adventure | 133 |
-| The King Meets Ur-hea | 140 |
-| Mua Welcomes Izdubar | 146 |
-| The King Becomes Immortal | 149 |
-| Izdubar Falls in Love with Mua | 152 |
-| Mua's Answer | 154 |
-
-### Tablets and Cuneiform Inscriptions
-
-| Section | Page |
-| :--- | :--- |
-| Babylonian Exorcisms | 159 |
-| Accadian Hymn to Istar | 162 |
-| Annals of Assur-Nasir-Pal | 165 |
-| Assyrian Sacred Poetry | 198 |
-| Assyrian Talismans and Exorcisms | 202 |
-| Ancient Babylonian Charms | 206 |
-| Inscription of Tiglath Pileser I | 212 |
-| The Revolt in Heaven | 230 |
-| The Legend of the Tower of Babel | 232 |
-| An Accadian Penitential Psalm | 234 |
-| The Black Obelisk of Shalmaneser II | 238 |
-| Inscription of Nebuchadnezzar | 250 |
-| Accadian Poem on the Seven Evil Spirits | 266 |
-| Chaldean Hymns to the Sun | 271 |
-| Two Accadian Hymns | 277 |
-| Accadian Proverbs and Songs | 278 |
-| Babylonian Public Documents | 281 |
-| Babylonian Private Contracts | 282 |
-| Great Inscription of Khorsabad | 294 |
+**Epiphanius Wilson.**
 
 ---
 
-## ILLUSTRATIONS
+# Ishtar and Izdubar.
 
-| Illustration | Description | Facing Page |
-| :--- | :--- | :--- |
-| **Babylonian Marriage Market** | Photogravure from the original painting by Edwin Long | Frontispiece |
-| **Pegasus, the Winged Horse** | Photo-engraving from the original group by M. Lequesne | 64 |
-| **Page from the Kan-djur** | Fac-simile manuscript of the Sixteenth Century | 156 |
+[_Translated by Leonidas Le Cenci Hamilton, M. A._]
 
----
+## Alcove 1.
 
-[Translated by Leonidas Le Cenci Hamilton, M.A.]
+## Table 1: Column 1. --- Invocation.
 
-ALCOVE I
-
-TABLET I: COLUMN I
-Invocation
-
-OLOVE, my queen and goddess, come to me;
-My soul shall never cease to worship thee;
-Come pillow here thy head upon my breast,
-And whisper in my lyre thy softest, best,
-And sweetest melodies of bright Sami,^
-Our Happy Fields ^ above dear Siibartu; ^
-Come nestle closely with those lips of love
-And balmy breath, and I with thee shall rove
-Through Sari'^ past ere life on earth was known,
-And Time unconscious sped not, nor had flown.
-Thou art our all in this impassioned life:
-How sweetly comes thy presence ending strife.
-Thou god of peace and Heaven's undying joy.
-Oh, hast thou ever left one pain or cloy
-Upon this beauteous world to us so dear?
-To all mankind thou art their goddess here.
-To thee we sing, our holiest, fairest god,
-The One who in that awful chaos trod
-And woke the Elements by Law of Love
-To teeming worlds in harmony to move.
-From chaos thou hast led us by thy hand,
-^ Thus spoke to man upon that budding land:
-" The Queen of Heaven, of the dawn am I,
-The goddess of all wide immensity,
-
-1 "Samu," heaven.
-2 "Happy Fields," celestial gardens, heaven.
-3 "Subartu," Syria.
-4 "Sari," plural form of "saros," a cycle or measurement of time used by the Babylonians, 3,600 years.
-5 From the "Accadian Hymn to Ishtar," terra-cotta tablet numbered "S, 954," one of the oldest hymns of a very remote date, deposited in the British Museum by Mr. Smith. It comes from Erech, one of the oldest, if not the oldest, city of Babylonia. We have inserted a portion of it in its most appropriate place in the epic. See translation in "Records of the Past," vol. v. p. 157.
-
-For thee I open wide the golden gate
-
-Of happiness, and for thee love create
-
-To glorify the heavens and fill with joy
-
-The earth, its children with sweet love employ."
-
-Thou gavest then the noblest melody
-
-And highest bliss — grand nature's harmony.
-
-With love the finest particle is rife,
-
-And deftly woven in the woof of life,
-
-In throbbing dust or clasping grains of sand.
-
-In globes of glistening dew that shining stand
-
-On each pure petal, Love's own legacies
-
-Of flowering verdure, Earth's sweet panoplies;
-
-By love those atoms sip their sweets and pass
-
-To other atoms, join and keep the mass
-
-With mighty forces moving through all space,
-
-'Tis thus on earth all life has found its place.
-
-Through Kisar," Love came formless through the air
-
-In countless forms behold her everywhere!
-
-Oh, could we hear those whispering roses sweet,
-
-Three beauties bending till their petals meet.
-
-And blushing, mingling their sweet fragrance tiiere
-
-In language yet unknown to mortal ear.
-
-Their whisperings of love from morn till night
-
-Would teach us tenderly to love the right.
-
-O Love, here stay! Let chaos not return!
-
-With hate each atom would its lover spurn
-
-In air above, on land, or in the sea,
-
-O World, undone and lost that loseth thee!
-
-For love we briefly come, and pass away
-
-For other men and maids; thus bring the day
-
-Of love continuous through this glorious life.
-
-Oh, hurl away those weapons fierce of strife!
-
-We here a moment, point of time but live,
-
-Too short is life for throbbing hearts to grieve.
-
-Thrice holy is that form that love hath kissed.
-
-And happy is that man with heart thus blessed.
-
-Oh, let not curses fall upon that head
-
-Whom love hath cradled on the welcome bed
-
-* " Kisar," the consort or queen of Sar, father of all the gods.
-
-Of bliss, the bosom of our fairest god,
+O Love, my queen and goddess, come to me;  
+My soul shall never cease to worship thee;  
+Come pillow here thy head upon my breast,  
+And whisper in my lyre thy softest, best,  
+And sweetest melodies of bright _Sami_,*  
+Our Happy Fields* above dear _Subartu_;*  
+Come nestle closely with those lips of love  
+And balmy breath, and I with thee shall rove  
+Through _Sari_* past ere life on earth was known,  
+And Time unconscious sped not, nor had flown.  
+Thou art our all in this impassioned life:  
+How sweetly comes thy presence ending strife,  
+Thou god of peace and Heaven's undying joy,  
+Oh, hast thou ever left one pain or cloy  
+Upon this beauteous world to us so dear?  
+To all mankind thou art their goddess here.  
+To thee we sing, our holiest, fairest god,  
+The One who in that awful chaos trod  
+And woke the Elements by Law of Love  
+To teeming worlds in harmony to move.  
+From chaos thou hast led us by thy hand,  
+*Thus spoke to man upon that budding land:  
+"The Queen of Heaven, of the dawn am I,  
+The goddess of all wide immensity,  
+For thee I open wide the golden gate  
+Of happiness, and for thee love create  
+To glorify the heavens and fill with joy  
+The earth, its children with sweet love employ."  
+Thou gavest then the noblest melody  
+And highest bliss --- grand nature's harmony.  
+With love the finest particle is rife,  
+And deftly woven in the woof of life,  
+In throbbing dust or clasping grains of sand,  
+In globes of glistening dew that shining stand  
+On each pure petal, Love's own legacies  
+Of flowering verdure, Earth's sweet panoplies;  
+By love those atoms sip their sweets and pass  
+To other atoms, join and keep the mass  
+With mighty forces moving through all space,  
+'Tis thus on earth all life has found its place.  
+Through Kisar,* Love came formless through the air  
+In countless forms behold her everywhere!  
+Oh, could we hear those whispering roses sweet,  
+Three beauties bending till their petals meet,  
+And blushing, mingling their sweet fragrance there  
+In language yet unknown to mortal ear.  
+Their whisperings of love from morn till night  
+Would teach us tenderly to love the right.  
+O Love, here stay! Let chaos not return!  
+With hate each atom would its lover spurn  
+In air above, on land, or in the sea,  
+O World, undone and lost that loseth thee!  
+For love we briefly come, and pass away  
+For other men and maids; thus bring the day  
+Of love continuous through this glorious life.  
+Oh, hurl away those weapons fierce of strife!  
+We here a moment, point of time but live,  
+Too short is life for throbbing hearts to grieve.  
+Thrice holy is that form that love hath kissed,  
+And happy is that man with heart thus blessed.  
+Oh, let not curses fall upon that head  
+Whom love hath cradled on the welcome bed  
+Of bliss, the bosom of our fairest god,  
 Or hand of love e'er grasp the venging rod.
 
-Oh, come, dear Zir-ri,'^ tune your lyres and lutes.
-And sing of love with chastest, sweetest notes.
-Of Accad's goddess Ishtar, Queen of Love,
-And Izdubar, with softest measure move;
-Great Samas' ^ son, of him dear Zir-ri sing!
-Of him whom goddess Ishtar warmly wooed,
-Of him whose breast with virtue was imbued.
-He as a giant towered, lofty grown,
-As Babil's ° great pa-tc-si ^^ was he known,
-His armed fleet commanded on the seas
-And erstwhile travelled on the foreign leas;
-His mother Ellat-gula ^ on the throne
-From Erech all Kardunia - ruled alone.
+*) "Samu," heaven.
 
-COLUMN n
+*) "Happy Fields," celestial gardens, heaven.
 
-The Fall of Erech
+*) "Subartu," Syria.
 
-O Moon-god,^ hear my cry! With thy pure light
+*) "Sari," plural form of "saros," a cycle or measurement of time used by the Babylonians, 3,600 years.
 
+*) From the "Accadian Hymn to Ishtar," terra-cotta tablet numbered "S, 954," one of the oldest hymns of a very remote date, deposited in the British Museum by Mr. Smith. It comes from Erech, one of the oldest, if not the oldest, city of Babylonia. We have inserted a portion of it in its most appropriate place in the epic. See translation in "Records of the Past," vol. 5. p. 157.
+
+*) "Kisar," the consort or queen of Sar, father of all the gods.
+
+Oh, come, dear Zir-ri,* tune your lyres and lutes,  
+And sing of love with chastest, sweetest notes,  
+Of Accad's goddess Ishtar, Queen of Love,  
+And Izdubar, with softest measure move;  
+Great Samas'* son, of him dear Zir-ri sing!  
+Of him whom goddess Ishtar warmly wooed,  
+Of him whose breast with virtue was imbued.  
+He as a giant towered, lofty grown,  
+As Babil's* great _pa-te-si_* was he known,  
+His armèd fleet commanded on the seas  
+And erstwhile travelled on the foreign leas;  
+His mother Ellat-gula* on the throne  
+From Erech all Kardunia* ruled alone.
+
+## Table 1: Column 2. --- The Fall of Erech.
+
+O Moon-god,* hear my cry! With thy pure light
 Oh, take my spirit through that awful night
-
-That hovers o'er the long-forgotten years.
-
+That hovers o'er the long-forgotten years,
 To sing Accadia's songs and weep her tears!
-
 'Twas thus I prayed, when lo! my spirit rose
-
 On fleecy clouds, enwrapt in soft repose;
-
 And I beheld beneath me nations glide
-
 In swift succession by, in all their pride:
-
 The earth was filled with cities of mankind,
-
 And empires fell beneath a summer wind.
-
 The soil and clay walked forth upon the plains
-
 In forms of life, and every atom gains
-
 A place in man or breathes in animals;
-
 And flesh and blood and bones become the walls
 
-7 "Zir-ri" (pronounced "zeer-ree"), short form of "Zi-aria," spirits of the running rivers — naiads or water-nymphs.
+7 "Zir-ri" (pronounced "zeer-ree"), short form of "Zi-aria," spirits of the running rivers --- naiads or water-nymphs.
 8 "Samas," the sun-god.
 9 Babil, Babylon; the Accadian name was "Din-tir," or "Duran."
 10 "Pa-te-si," prince.
@@ -304,7 +318,7 @@ Of unseen pinions:
 Then amid the smoke
 That rose o'er burning cities, I beheld
 White Khar-sak-kur-ra's - brow arise that held
-The secrets of the gods — that felt the prore
+The secrets of the gods --- that felt the prore
 Of Khasisadra's ark; I heard the roar
 Of battling elements, and saw the waves
 That tossed above mankind's commingled graves.
@@ -312,7 +326,7 @@ The mighty mountain as some sentinel
 Stood on the plains alone; and o'er it fell
 A halo, bright, divine; its summit crowned
 With sunbeams, shining on the earth around
-And o'er the wide expanse of plains; — below
+And o'er the wide expanse of plains; --- below
 Lay Khar-sak-kal-ama ^ with light aglow.
 And nestling far away within my view
 Stood Erech, Nipur, Marad, Eridu,
@@ -321,7 +335,7 @@ In her own splendor shone like burnished gold.
 And lo! grand Erech in her glorious days
 Lies at my feet. I see a wondrous maze
 Of vistas, groups, and clustering columns round,
-Within, without the palace; — from the ground
+Within, without the palace; --- from the ground
 Of outer staircases, massive, grand,
 Stretch to the portals where the pillars stand.
 A thousand carved columns reaching high
@@ -484,7 +498,7 @@ For aid, protection, blessing through the day.
 7 "Samas," the sun-god.
 
 Beneath these walls and palaces abode
-The spirit of their country — each man trod
+The spirit of their country --- each man trod
 As if his soul to Erech's weal belonged,
 And heeded not the enemy which thronged
 Before the gates, that now were closed with bars
@@ -542,7 +556,7 @@ Her mightiest unrivalled prince of war?
 
 The turrets on the battlemented walls
 
-Swarm with skilled bowmen, archers — from them falls
+Swarm with skilled bowmen, archers --- from them falls
 
 A cloud of winged missiles on their foes,
 
@@ -821,7 +835,7 @@ He comes! he comes! our hero Izdubar! "
 
 He grasps his harp inspired, again to wake
 
-In song — the cry of battle now doth break.
+In song --- the cry of battle now doth break.
 
 *' Nin-a-rad,^ servant of our great Nin,*
 Shall lead our hosts to victory!
@@ -981,7 +995,7 @@ Within the walls in Accad's grand parade
 
 They pass, led by the maidens crowned with flowers,
 
-Who strew the path with fragrance; — to the towers
+Who strew the path with fragrance; --- to the towers
 
 And walls and pillars of each door bright cling
 
@@ -1105,7 +1119,7 @@ O Judge, thy glory hath all things surpassed! "
 The King then rises, takes the sacred glass,"
 And holds it in the sun before the mass
 Of waiting fuel on the altar piled.
-The centring rays — the fuel glowing gild
+The centring rays --- the fuel glowing gild
 With a round spot of fire and quickly spring
 Above the altar curling, while they sing!
 
@@ -1483,7 +1497,7 @@ E'en yet I feel her warm embracing arms.
 Enough! her love from me I'll drive away;
 Alas! for me, is this unfruitful day! "
 
-TABLET II— COLUMN I
+TABLET II--- COLUMN I
 
 Ishtar's Midnight Courtship in the Palace of Izdubar.
 
@@ -2079,7 +2093,7 @@ The bird with its sly quarry would have flown;
 But the a-si - quick seized it by the throat,
 While the wide wings with frantic fury smote
 The beast, and the sharp talons deeply tore
-Its foe — both greedy for the other's gore.
+Its foe --- both greedy for the other's gore.
 
 And lo! a voice from yonder sky resounds;
 Heabani to his feet now quickly bounds.
@@ -2094,12 +2108,12 @@ With offers rich, to leave thy lonely home.
 This eagle sought its food and found a snare,
 The messenger will come from Izdubar^
 To learn from thee the meaning of his dream
-Which goddess Ishtar sent, — a snare for him.
+Which goddess Ishtar sent, --- a snare for him.
 Then to the messenger prove not a snare,
 As yonder a-si doth the eagle tear."
 
 The seer in fury tore his beard of snow
-And cried —
+And cried ---
 
 " Alas! my days shall end in woe
 Within these wilds my happiness is mine,
@@ -2130,7 +2144,7 @@ In royal raiment thou shalt happy be."
 Heabani listened to the words that came
 From Samas, and his brow was lit with shame
 To hear the god of war urge him to go
-To earthly happiness — mayhap to woe;
+To earthly happiness --- mayhap to woe;
 But he within his cave now listless turns
 When Samas ceased; then to his rock returns,
 And seats himself with calmness on his brow;
@@ -2246,7 +2260,7 @@ Again I long to seek the fields of fame,
 
 Where luxury my remaining years
 
-May crown, and happiness may find — or tears;
+May crown, and happiness may find --- or tears;
 
 'Tis true! I should have welcomed the bar-ru; ^
 
@@ -2260,7 +2274,7 @@ And tuning it, he glanced toward the wood,
 
 And sang his farewell ode to solitude:
 
-Farewell, ye mountains, woods and trees —
+Farewell, ye mountains, woods and trees ---
 
 My heart doth long again for joy;
 I love your wilds and mossy leas.
@@ -2372,9 +2386,9 @@ Of purest snow be my soul's daily dress.
 Guard thou my hands! O Samas, Lord of Light!
 And ever keep my life and heart aright!
 
-TABLET III— COLUMN I
+TABLET III--- COLUMN I
 
-Heabani's Wisdom — Song of the Khau-ik-i
+Heabani's Wisdom --- Song of the Khau-ik-i
 
 The dark-eyed maids are dancing in the halls
 Of Erech's palace: music fills the walls
@@ -2744,7 +2758,7 @@ Thus in Heabani's cave the maiden went,
 And o'er the sleeping seer her form she bent;
 O'er him who with gazelles oft eats his food;
 O'er him who drinks with hhu-ri ^ in the wood;
-O'er him who loves the zir-ri, — of them dreams,
+O'er him who loves the zir-ri, --- of them dreams,
 And sports with them within the mountain streams.
 And when the gay enticer saw the seer
 Unconscious sleeping with sweet Joy so near.
@@ -2763,7 +2777,7 @@ Compared to Sam-kha's snowy god-like charms.
 
 She give to him her freshness, blooming youth?
 
-She laughing comes again to him, — Forsooth!
+She laughing comes again to him, --- Forsooth!
 
 Her glorious arms she opens, flees away,
 
@@ -2771,7 +2785,7 @@ While he doth follow the enticer gay.
 
 He seizes, kisses, takes away her breath,
 
-And she falls to the ground — perhaps in death
+And she falls to the ground --- perhaps in death
 
 He thinks, and o'er her leans where she now lay;
 
@@ -2860,7 +2874,7 @@ In these wild caves its strength has mighty grown;
 
 If he the beast destroys, I will make known
 
-His dream to him — e'en all the seer doth know;
+His dream to him --- e'en all the seer doth know;
 
 And now with thee to Erech I will go.
 
@@ -2954,7 +2968,7 @@ Across his vision broke:
 Thy seer hath read! for Ishtar came to me
 In the first dream, her face e'en yet I see!
 Aye, more! her lips to mine again then fell!
-Her arms I felt around me, — breath too well
+Her arms I felt around me, --- breath too well
 I know! of fragrance, while perfume arose
 Around my dream and fled not at the close;
 As frankincense and myrrh it lingered, when
@@ -2983,7 +2997,7 @@ Heabani takes his seat beside his lord.
 The choicest viands of the wealthy plain
 Before them placed and fishes of the main.
 With wines and cordials, juices rich and rare
-The chieftains all enjoy — the royal fare.
+The chieftains all enjoy --- the royal fare.
 This day, with Izdubar they laugh and joke
 'Mid courtesies and mirth, and oft provoke
 The ringing merry laughter through the halls.
@@ -3059,7 +3073,7 @@ The revels high are raised o'er sparkling wine;
 
 Through all the night they praise their king divine.
 
-TABLET IV— COLUMN I
+TABLET IV--- COLUMN I
 
 The Annual Sale of the Maidens of Babylon
 
@@ -3084,7 +3098,7 @@ and is also copied in Sayce's edition of Tablets V and VI of the original, as
 
 classified by Mr. Sayce.
 
-That brings him hai)piness and thrill his heart —
+That brings him hai)piness and thrill his heart ---
 For one, of all thy kind who can impart
 To him the holiest bliss, the sweetest joy,
 That e'er can crown his life so tenderly;
@@ -3105,7 +3119,7 @@ And keep thee pure within sv^-eet love's confines
 
 That we may worship thee, and daily bring
 
-Devotions to our altar, — to thee sing
+Devotions to our altar, --- to thee sing
 
 Our orisons of praise, and sacred keep
 
@@ -3124,7 +3138,7 @@ Forever may thy charms on earth endure!
 Oh, trample not upon thy husband's love!
 For true devotion he doth daily prove.
 Oh, shackle not his feet in life's fierce strife,
-His weary shoulders burden, — blast his life!
+His weary shoulders burden, --- blast his life!
 Or palsy those dear hands that work for thee.
 And fill his eyes with tears of agony.
 Till love shall turn as acid to his teeth.
@@ -3244,7 +3258,7 @@ And their young lives from shame thus they will save.
 
 No aged maids shall pass from yonder throng
 
-With bitterness, — their heart's unuttered song
+With bitterness, --- their heart's unuttered song
 
 For some dear love to end their joyless woe,
 
@@ -3355,7 +3369,7 @@ His heart; and lift his voice in holy prayer,
 
 part, passive " lain," from " liggan," 32, 33): a'so translated in " Records
 
-Sax.), " to place along the ground." — of the Past," vol. vii., pp. 163, 163.
+Sax.), " to place along the ground." --- of the Past," vol. vii., pp. 163, 163.
 
 Fenning's Royal Eng. Die, London, " " Zubat," robes.
 
@@ -3368,9 +3382,9 @@ With lifted hands, his soul's petition sends.
 Around the square the palms and cedars shine.
 And bowers of roses cluster round divine.
 Beneath an arch of myrtles, climbing vines.
-And canopy, — with wreathing tiowers it shines.
+And canopy, --- with wreathing tiowers it shines.
 There stands a wondrous garland-wreathed throne,
-Where maids are gathered; — each unmarried one.
+Where maids are gathered; --- each unmarried one.
 The timid maids and bold of Babylon
 Are each in turn led to the rosy throne;
 The crowd of bidders round the herald stand.
@@ -3593,7 +3607,7 @@ From Sumir's plain. Have ye our wrongs forgiven?
 
 Khumbaba hath enjoyed great Accad's spoils
 Too long; with him we end these long turmoils.
-What sayest thou, Heabani? — all my seers?
+What sayest thou, Heabani? --- all my seers?
 Hath Accad not her chariots and spears? "
 
 Then one among the wisest seers arose
@@ -3651,7 +3665,7 @@ And two in breadth, like Nipur's * to the sight.
 
 chief of the seers and counsellors; walls were thus 120 feet high and forty
 
-prime minister. feet thick— much like the walls of Baby
+prime minister. feet thick--- much like the walls of Baby
 
 -"Twenty kaspu." 140 miles; each Ion.
 kaspu was seven miles, or two hours' * " Nipur " was one of the cities of
@@ -3753,15 +3767,15 @@ Within his arms upon his throbbing breast,
 And said, " Let us to the war temple go.
 That all the gods their favor may bestow.''
 The seer replied, " 'Tis well! then let us wend
-Our way, and at the altar we will bend, —
+Our way, and at the altar we will bend, ---
 To Ishtar's temple, where our goddess queen
 Doth reign, seek her propitious favor, then
 In Samas' holy temple pray for aid
-To crush our foe; — with glory on each blade,
+To crush our foe; --- with glory on each blade,
 Our hands will carry victory in war."
 The chiefs, without the temple, join their Sar.
 
-* " Amaranti," amaranth. " Immortal amaranth." — " Par. Lost" COLUMN 111
+* " Amaranti," amaranth. " Immortal amaranth." --- " Par. Lost" COLUMN 111
 
 The King Worsiih's at the Shrine of Ishtar
 
@@ -3834,7 +3848,7 @@ O'erlaid wath gold and pearls and iik-ni stones,
 
 And near it stands the altar with its cones
 
-Of gold adorned with gems and solid pearls, —
+Of gold adorned with gems and solid pearls, ---
 
 And from the golden censer incense curls.
 
@@ -3911,7 +3925,7 @@ In wildest transport round each maiden flies,
 
 The measure keeps to sacred psalmody,
 
-With music ravishing, — sweet melody.
+With music ravishing, --- sweet melody.
 
 The priestess leads for them the holy hymn,
 
@@ -3977,7 +3991,7 @@ Thou warrior's god, who rideth on the wind!
 As a hyena fierce thou sendest war,
 And as a lion comes thy raging car.
 Each day thou rulest from thy canopy
-That spreads above in glory, — shines for thee;
+That spreads above in glory, --- shines for thee;
 O come, exalted goddess of the Sun! "
 
 ^ Against the tyrant King I go to war,
@@ -4066,7 +4080,7 @@ The crimson wine, to Samas, God, he pours
 Libation, and his favor thus implores:
 
 ■ O Samas, why hast thou established, raised
-Me in thy heart? — protected? Men have praised
+Me in thy heart? --- protected? Men have praised
 Thee, Holy One! my expedition bless
 In thine own will, O God, I acquiesce.
 I go, O Samas, on a path afar,
@@ -4159,7 +4173,7 @@ Is passed by steps ascending till we view
 
 From them the second stage of orange hue
 
-And crimson third! from thence a glorious view —
+And crimson third! from thence a glorious view ---
 
 A thousand turrets far beneath, is spread
 
@@ -4362,7 +4376,7 @@ To save himself each man in terror flies.
 
 COLUMN VI
 
-Hand-to-Hand Conflict of the Rival Giants — Death
+Hand-to-Hand Conflict of the Rival Giants --- Death
 OF Khumbaba
 
 Now the black forest through, the Sar and seer
@@ -4465,7 +4479,7 @@ Now Ishtar downward drove his raging car,
 
 And in Khunibaba's eyes her rays she cast.
 
-The giant turned his glance — it was his last;
+The giant turned his glance --- it was his last;
 
 Unwary caught, his foe has swung his sword,
 
@@ -4473,7 +4487,7 @@ Khumbaba's gory head rolls o'er the sward.
 
 ALCOVE II
 
-TABLET V— COLUMN I
+TABLET V--- COLUMN I
 
 Coronation of Izdubar as King of the Four Races, and
 Appearance of Ishtar in His Royal Presence, Who
@@ -4481,7 +4495,7 @@ Sues for His Hand
 
 To Erech's palaces returns the Sar,
 Rich laden with Khumbaba's spoils of war.
-The land of Ur with grandest glories shines —
+The land of Ur with grandest glories shines ---
 And gleams with palaces and towers and shrines.
 The plain with temples, cities, walls is filled,
 And wide canals, and yellow harvests tilled.
@@ -4519,7 +4533,7 @@ Of Sumir, Accad, Nipur, Bar-ili,^
 
 And Erech, Larsa, Mairu, and Kus-si,
 
-Of Mal-al-nak, Kitu; — the sky resounds —
+Of Mal-al-nak, Kitu; --- the sky resounds ---
 
 For Iz-zu-bar-ili,^ from earth rebounds;
 
@@ -4541,7 +4555,7 @@ Of all the gods at Dintir old,
 
 Ka-ding-ir-a.* This day completes
 
-His grandeur — may it far be told
+His grandeur --- may it far be told
 
 Of our great Sar whose godly gate
 
@@ -4573,7 +4587,7 @@ regions. original name of Izdubar, afterward
 
 " " Bar-ili," from " bar," gate, and shortened to Izdubar, and means
 
-" ili," of the gods— Babel, Bab — origi- literally the fire-king of " bar-ili," or
+" ili," of the gods--- Babel, Bab --- origi- literally the fire-king of " bar-ili," or
 
 nates from the Accadian word " bar," the " fire-king of the gate of the gods."
 
@@ -4583,7 +4597,7 @@ inally called " bar-ili." See Taylor and founder of Bar-bet or Babylon.
 
 Furst. The latter renders it " Bar- * Ka-ding-ir-a (Ace), " gate of God "
 
-(Bir-^Bcl," " town of Bclus." — Pinches.
+(Bir-^Bcl," " town of Bclus." --- Pinches.
 
 APPEARANCE OF ISHTAR
 
@@ -4767,7 +4781,7 @@ With dal-khi gloating over me in hell.
 My sii-khu-li then sought thy presence fell.
 Forever may thy wooing cease! for love
 Hath fied, may godly praises never move
-Upon the lips of holy gods, or men, —
+Upon the lips of holy gods, or men, ---
 Of thee, the god of Love ne'er speak again!
 I loved thee once; with love my heart inflamed
 Once sought thee, but my troubles I have blamed
@@ -4816,7 +4830,7 @@ The mighty gods of heaven then sought to move
 
 *" Seven kaspu," fourteen hours; tarish semukki," " thou who didst make
 
-each kaspu was two hours. evil with thy drugs. '— " Trans. Soc.
+each kaspu was two hours. evil with thy drugs. '--- " Trans. Soc.
 
 * " Sem-uk-ki," translated by Sayce Bib. Arch., vol. v. p. no. Sayce's edi-
 
@@ -4828,7 +4842,7 @@ Beneath thy wand upon the ground he springs,
 
 Transformed to a hyena; then was driven
 
-From his own city — by his dogs was riven.
+From his own city --- by his dogs was riven.
 
 Next Is-ul-lan-u lov'st^ uncouth, and rude,
 
@@ -4939,7 +4953,7 @@ And Freeh's iiiasari rush in afiTight
 To Izdubar, who sits upon his throne,
 Before him fall in speechlesj^ terror prone.
 
-1 " Ami's winded bull," Taurus, con- — " thirty manehs of crystal," etc. The
+1 " Ami's winded bull," Taurus, con- --- " thirty manehs of crystal," etc. The
 stellation of the heavens. meaning probably of " zamat stone,"
 
 - " Glories " (" maskhi "). This word as given by Smith, was a hard subis not translated by Mr. Sayce. stance, such as the diamond or ada-
@@ -4994,7 +5008,7 @@ With ringing swords upon his horns and scales.
 
 At last the seer it reaches, him impales
 
-With its sharp horns: but valiant is the seer —
+With its sharp horns: but valiant is the seer ---
 
 He grasps its crest and fights without a fear.
 
@@ -5229,7 +5243,7 @@ gods. of Izdubar.
 COLUMN VI
 
 IsiiTAR Weaves a Mystic Spell Over the King and Seer,
-AND Vanishes — The Seer Advises the King to Seek
+AND Vanishes --- The Seer Advises the King to Seek
 THE Aid of the Immortal Seer Who Escapes from
 the Flood.
 
@@ -5249,9 +5263,9 @@ Then o'er Heabani's couch a moment stands,
 
 And Heaven's curtains pulls aside with hands
 
-Of mystic power, and he a vision sees —
+Of mystic power, and he a vision sees ---
 
-The gods in council; — vanishing, she flees
+The gods in council; --- vanishing, she flees
 
 Without the palace like a gleam of light,
 
@@ -5305,7 +5319,7 @@ Too weak am I, for that long journey hard
 
 To undertake; my presence would retard
 
-Thee, — with these wounds; nor strength have I to last
+Thee, --- with these wounds; nor strength have I to last
 
 To guard my body in the mountain fast.
 
@@ -5327,11 +5341,11 @@ To-morrow then we on our way will wend."
 Equipped for the long journey they appear
 Next morn and leave, while Erech's people cheer
 Them on their way across the glowing plain,
-To perils dire they go — distress and pain.
+To perils dire they go --- distress and pain.
 
-TABLET VI— COLUMN I
+TABLET VI--- COLUMN I
 
-Ishtar's Descent to Hades — Her Fearful Reception
+Ishtar's Descent to Hades --- Her Fearful Reception
 
 To Hades' darkened land, whence none return,
 
@@ -5385,7 +5399,7 @@ To her I go to bid thee welcome here."
 
 To Allat then the keeper doth appear:
 
-" Thy sister Ishtar the dark waters seeks —
+" Thy sister Ishtar the dark waters seeks ---
 
 The Queen of Heaven," thus Allat's fury breaks.
 
@@ -5469,8 +5483,8 @@ With foul disease her strikC;, within the gate! "
 
 COLUMN II
 
-Effect of Ishtar's Imprisonment in Hades — Love Departs
-FROM THE Earth — The Earth's Solemn Dirge of Woe.
+Effect of Ishtar's Imprisonment in Hades --- Love Departs
+FROM THE Earth --- The Earth's Solemn Dirge of Woe.
 
 When Lshtar, Queen of Love, from Earth had flown,
 
@@ -5748,7 +5762,7 @@ Of Hades open with their gloomy grates;
 May Allat's face rejoice before thy sight.
 Her rage be soothed, her heart filled with delight;
 But conjure her by all the godly names.
-And fearless be, — towards the roaring streams
+And fearless be, --- towards the roaring streams
 Incline thine ear, and seek the path there spread.
 Release Queen Ishtar! raise her godly head!
 And sprinkle her with water from the stream;
@@ -5761,7 +5775,7 @@ Around the gates of that dark world of doom."
 
 COLUMN IV
 
-Release of Ishtar — Her Attempts to Bring to Life
+Release of Ishtar --- Her Attempts to Bring to Life
 Ta.mmuz, Her First Lover
 
 When Allat saw the flaming herakl come.
@@ -5829,7 +5843,7 @@ This also, according to the magi, is the
 
 RELEASE OF ISHTAR
 
-And gives her bracelets back; — thus at each door
+And gives her bracelets back; --- thus at each door
 Returns to her her girdle, gems; then o'er
 Her queenly brow he placed her shining crown.
 With all her ornaments that were her own,
@@ -5855,10 +5869,10 @@ Before her now they place a sable bier
 Beside the fount; and Ishtar, drawing near.
 Raised the white pall from Tammuz's perfect form.
 The clay unconscious, had that mystic charm
-Of Beauty sleeping sweetly on his face, —
+Of Beauty sleeping sweetly on his face, ---
 Of agony or sorrow left no trace:
 But, oh! that awful wound of death was there
-With its deep mark; — the wound^ and not the scar.
+With its deep mark; --- the wound^ and not the scar.
 
 When Ishtar's eyes beheld it, all her grief
 Broke forth afresh, refusing all relief;
@@ -5878,7 +5892,7 @@ Oh, quickly let these waters to me prove
 Their claim to banish death with magic power! "
 
 Then with her maids, she o'er his form doth pour
-The sparkling drops of life —
+The sparkling drops of life ---
 
 " He moves! he lives!
 What happiness is this my heart receives?
@@ -5890,7 +5904,7 @@ And nestling closed his eyes in bliss again.
 
 COLUMN V
 
-Tammuz is Restored to Life by the Waters of Life — His
+Tammuz is Restored to Life by the Waters of Life --- His
 Song of Love
 
 The nectared cup the queen placed to his lips.
@@ -5969,7 +5983,7 @@ If Love should hide and fold her wings
 In bowers of yonder gleaming skies,
 
 Unmeaning then each bard oft sings
-Of bliss that lives on earth and dies, — -
+Of bliss that lives on earth and dies, --- -
 I want such love as this.
 
 1 want thy form, thy loving breast,
@@ -6060,10 +6074,10 @@ To bower of love again."
 
 COLUMN VI
 
-Escape of Tammuz from Hades — His Death in the
-Clouds — Funeral Procession of the Gods — Ishtar's
-Elegy Over the Death of Tammuz — His Revival in
-Hades, where FIe is Crowned as the Lord of Hades —
+Escape of Tammuz from Hades --- His Death in the
+Clouds --- Funeral Procession of the Gods --- Ishtar's
+Elegy Over the Death of Tammuz --- His Revival in
+Hades, where FIe is Crowned as the Lord of Hades ---
 Ishtar's Return Brings Light and Love Back to
 Earth.
 
@@ -6085,7 +6099,7 @@ Its wail of woe, and now beneath it bends,
 
 With silent pinions listening to its strings.
 
-Wild sobbing on the wands; — with wailing rings
+Wild sobbing on the wands; --- with wailing rings
 
 The conscious harp, and trembles in her hands.
 
@@ -6136,7 +6150,7 @@ With your sad tears, dear spirits of the deep!
 Let all the mournful sounds of earth be heard.
 The breeze hath carried stored from beast and bird;
 Join the sweet notes of doves for their lost love
-To the wild moans of hours, — wailing move;
+To the wild moans of hours, --- wailing move;
 
 Let choirs of Heaven and of the earth then peal,
 All living beings my dread sorrow feel!
@@ -6233,7 +6247,7 @@ Ah, me, my brother!
 Let joy be stilled! and every hope be dead!
 
 And tears alone our hearts distil.
-My love has gone! — to darkness he has fled;
+My love has gone! --- to darkness he has fled;
 
 Dread sorrow's cup for us, oh, fill!
 And weep for Tammuz we have held so dear.
@@ -6283,7 +6297,7 @@ Alas! I give you love, nor can receive,
 O all my children for me grieve;
 Ah, me, my Tammuz!
 
-Alas! alas! my heart is dying — dead!
+Alas! alas! my heart is dying --- dead!
 
 With all these bitter pangs of grief
 Despair hath fallen on my queenly head,
@@ -6321,9 +6335,9 @@ called by them the " River of Night." " Records of the Past," vol. xi. p. 131.
 * " Lord of Hades " is one of the And Ishtar's sorrow thus appeased, she flies
 To earth, and fills with light and love the skies.
 
-TABLET VII— COLUMN I
+TABLET VII--- COLUMN I
 
-The King and Seer Conversing on Their Way to KhasiSiVDRA — Interpretation of the King's Dream in the
+The King and Seer Conversing on Their Way to KhasiSiVDRA --- Interpretation of the King's Dream in the
 Palace on the Night of the Festival
 
 " The dream, my seer, which I beheld last night
@@ -6344,7 +6358,7 @@ The mountain burning was Khuml)aba's halls
 
 We fired, when all his soldiers from the walls
 
-Had fled; — the ni-takh-garri,^ — on that morn,
+Had fled; --- the ni-takh-garri,^ --- on that morn,
 
 Of such deceptive dreams, I would thee warn! "
 
@@ -6364,7 +6378,7 @@ And Izdubar brought from the tent the dream
 
 He dreamed the festal night when Ishtar came
 
-To him; — he reads it from a written scroll:
+To him; --- he reads it from a written scroll:
 
 " Upon my sight a vision thus did fall:
 
@@ -6415,7 +6429,7 @@ Our great Creator King, whose thunders roared
 By thee, as through yon sky he takes his way;
 P'or his great favor we should ever pray.
 The man thou sawest lying on the plain
-Was thee, O King, — to fight such power is vain.
+Was thee, O King, --- to fight such power is vain.
 Thus Anatu will strike thee with disease.
 Unless thou soon her anger shalt appease;
 And if thou warrest with such foes divine,
@@ -6429,8 +6443,8 @@ One shall be taken, and the other left."
 
 COLUMN II
 
-Contest with the Dragons in the Mountains — The Seer
-IS Mortally Wounded — His Calm View of the Hereafter
+Contest with the Dragons in the Mountains --- The Seer
+IS Mortally Wounded --- His Calm View of the Hereafter
 
 ^ "O Mam-mitii, thou god of fate and death!
 Thou spirit of Tierce hate and parting breath,
@@ -6737,8 +6751,8 @@ With Self alone communed.
 Unconscious hurled
 By winged thought beyond this present life,
 I seeming woke in a Dark World where rife
-Was Nothingness, — a darksome mist it seemed,
-All eke was naught; — no light for me there gleamed;
+Was Nothingness, --- a darksome mist it seemed,
+All eke was naught; --- no light for me there gleamed;
 And floating 'lone, which way I turned, saw naught;
 Nor felt of substance 'neath my feet, nor fraught
 With light was Space around; nor cheerful ray
@@ -6749,12 +6763,12 @@ Or cold I felt, no form could feel or see;
 And naught I knew but conscious entity.
 No boundary my being felt, or had;
 And speechless, deaf, and blind, and formless, sad,
-I floated through dark space, — a conscious blank!
+I floated through dark space, --- a conscious blank!
 No breath of air my spirit moved; I sank
 I knew not where, till motionless I ceased
 At last to move, and yet I could not rest.
 Around me spread the Limitless, and Vast.
-My cheerless, conscious spirit, — fixed and fast
+My cheerless, conscious spirit, --- fixed and fast
 In some lone spot in space was moveless, stark!
 An atom chained by forces stern and dark,
 With naught around me. Comfortless I lived
@@ -6764,7 +6778,7 @@ With naught but consciousness, and thus involved All men in hopes that no fruiti
 And this alone was all that death me ^ave?
 That all had vanished, gone from me that life
 Could give, and left me but a blank, with strife
-Of rising thoughts, and vain regrets, to float; —
+Of rising thoughts, and vain regrets, to float; ---
 Away from life and light, be chained remote!
 
 Oh, how my spirit longed for some lone crag
@@ -6773,7 +6787,7 @@ To part the gloom beneath, and rudely drag
 
 My senses back! or with its shock to end
 
-My dire existence; — to oblivion send
+My dire existence; --- to oblivion send
 
 Me quickly! How I strove to curse, and break
 
@@ -6803,7 +6817,7 @@ Of mother Earth, that grand and beauteous world!
 
 From all its happiness, alas! was hurled
 
-My spirit, — then in frenzy — I awoke!
+My spirit, --- then in frenzy --- I awoke!
 
 Great Bel! a dream it was! as vanished smoke
 
@@ -6822,7 +6836,7 @@ Came to me. Near the Stream of Life I lie:
 My couch the rarest flowers; and music thrills
 My soul! How soft and sweet it sounds from rills
 And streams, and feathered songsters in the trees
-Of Heaven's fruits! — e'en all that here doth please
+Of Heaven's fruits! --- e'en all that here doth please
 The heart of man was there. In a dear spot
 I lay, 'mid olives, spices, where was wrought
 
@@ -6903,7 +6917,7 @@ And on the walls of purest pearl there glows
 
 The painting of each act of kindest deed
 
-Each soul performs on earth; — is there portrayed.
+Each soul performs on earth; --- is there portrayed.
 
 The scenes of tenderness and holy love.
 There stand and never end, but onward move.
@@ -6913,10 +6927,10 @@ The holiest deeds are carved in purest gold.
 Or richest gems, and there are stored of old;
 Within the inner court a fountain stood,
 Of purest diamond moulded, whence there flowed
-Into a golden chalice, — trickling cool,
-The nectar of the gods, — a sparkling pool.
+Into a golden chalice, --- trickling cool,
+The nectar of the gods, --- a sparkling pool.
 That murmuring sank beneath an emerald vase
-That rested underneath; — the fountain's base.
+That rested underneath; --- the fountain's base.
 
 We entered then an arcade arching long
 
@@ -7009,7 +7023,7 @@ Alas! through yonder void I now must go!
 My hands I spread! as birds with wings I fly!
 Descend! descend! beneath that awful sky! "
 The seer falls in the arms of Izdubar,
-And he is gone; — 'tis clay remaineth here.
+And he is gone; --- 'tis clay remaineth here.
 
 COLUMN IV
 
@@ -7051,7 +7065,7 @@ If I shall tarry here, I cannot sleep.
 1 pray to thee upon my face, oh, hear
 
 My prayer! my supplications bring thou near
-To all the gods! grant thou to me, — e'en me,
+To all the gods! grant thou to me, --- e'en me,
 A heart of strength and will to worship thee.
 
 Oh, is this death like that the seer hath dreamed?
@@ -7066,7 +7080,7 @@ But grandly, sweetly fling thy light
 To our bright world beneath serene.
 
 Hath mortals on thee known
-Or viewed beyond, — that great Unseen,
+Or viewed beyond, --- that great Unseen,
 Their future fate by gods been shown?
 
 Oh, hear me, all ye gods on high!
@@ -7074,13 +7088,13 @@ To gods who love mankind I pray.
 
 Despairing, oh, I cry!
 Oh, drive these doubts and fears away!
-And yet — and yet, what truths have we?
+And yet --- and yet, what truths have we?
 O wondrous mortal, must thou die?
 Beyond this end thou canst not see,
 O Life! O Death! O mystery!
 
 The body still is here, with feeling dead!
-And sight is gone! — and hearing from his head.
+And sight is gone! --- and hearing from his head.
 Nor taste, nor smell, nor warmth, nor breath of life!
 Where is my seer? Perhaps, his spirit rife
 
@@ -7088,13 +7102,13 @@ E'en now in nothingness doth wander lone!
 
 In agony his thoughts! with spirit prone!
 
-In dread despair! — If conscious then, O gods!
+In dread despair! --- If conscious then, O gods!
 
-He spake the truth! — His body to the clods
+He spake the truth! --- His body to the clods
 
 Hath turned! By this we feel, or hear, or see,
 
-And when 'tis gone, — exist? — in agony!
+And when 'tis gone, --- exist? --- in agony!
 
 To Hades hath he gone? as he hath thought!
 
@@ -7176,7 +7190,7 @@ COLUMN V
 
 The King Buries His Seer in the Cave, and Continuing
 His Journey, He Meets Two Fiery Giants Who
-Guide the Sun in the Heavens — They Make Merry
+Guide the Sun in the Heavens --- They Make Merry
 Over the King, and Direct Him on His Way
 
 The King within the cave his seer entombs,
@@ -7184,7 +7198,7 @@ And mourning sadly from the cavern comes;
 The entrance closes with the rocks around,
 Again upon his journey he is bound.
 But soon within the mountains he is lost
-Within the darkness, — as some vessel tost
+Within the darkness, --- as some vessel tost
 Upon the trackless waves of unknown seas.
 But further from the awful cavern fiees.
 The morning breaks o'er crags and lonely glens,
@@ -7202,13 +7216,13 @@ What nameless horror thrills the shaking ground?
 which appears on a fragment of the (vi. 12, §§ 4, 14, 2, etc.), may be reepic translated by Mr. bayce. See ferred to by the author of the epic.
 Smith's " C. A. of Gen.," p. 259, which These mountains are now known to
 he has rendered " the former name, the the Turks as Jebel Tur and Karaiah
-new n-vr'-." Dag. — Rawlinson's " Ancient Mon-
+new n-vr'-." Dag. --- Rawlinson's " Ancient Mon-
 
 ^ " Mount Masu," the Mountains of archies," vol. ii. pp. 9 and 25.
 
 The King in terror stares! and see! his steed
 
-Springs back! wild snorting, — trembhng in his dread.
+Springs back! wild snorting, --- trembhng in his dread.
 
 Behold! behold those forms there blazing bright!
 
@@ -7222,7 +7236,7 @@ From depths beneath the earth the monsters fly,
 
 And upward lift their awful bodies high,
 
-Yet higher! — higher! till their crests are crowned
+Yet higher! --- higher! till their crests are crowned
 
 By Heaven's gates; thus reaching from the ground
 
@@ -7287,7 +7301,7 @@ And to provoke great power, is foolish, wrong;
 
 But whither goest thou, thou sad-eyed King,
 
-What message hast thou; — to us here would bring?"
+What message hast thou; --- to us here would bring?"
 
 The King now prostrate to the monsters prayed:
 
@@ -7347,7 +7361,7 @@ A heart Hkc thine may well defy the fates.
 
 A darkness deep profound doth ever spread
 
-Within those regions black, — Home of the Dead.
+Within those regions black, --- Home of the Dead.
 
 Go, Izdubar! within this land of Mas,
 
@@ -7358,14 +7372,14 @@ And may the maidens sitting by the walls
 Refresh thee, lead thee to the Happy Halls."
 
 The path they take behind the rising sun
-The setting sun they pass, — with wings have flown
+The setting sun they pass, --- with wings have flown
 The scorpion men,^ within wide space have gone,
 Thus from his sight the monsters far have flown.
 
 COLUMN VI
 
-Izdubar Enters Hades — The Song of the Dalkhi in the
-Cavern of Horrors — The King Passes Through
+Izdubar Enters Hades --- The Song of the Dalkhi in the
+Cavern of Horrors --- The King Passes Through
 Hades to the Garden of the Gods, and Sees the
 Wonderful Fountain of Life's Waters
 
@@ -7395,12 +7409,12 @@ IZDUBAR ENTERS HADES
 
 Here Silence sits supreme on a drear throne
 Of ebon hue, and joyless reigns alone
-O'er a wide waste of blackness, — solitude
+O'er a wide waste of blackness, --- solitude
 Black, at her feet, there sleeps the awful flood
 Of mystery which grasps all mortal souls.
 Where grisly horrors sit with crests of ghouls,
 And hateless welcome with their eyes of fire
-Each soul; — remorseless lead to terrors dire;
+Each soul; --- remorseless lead to terrors dire;
 And ever, ever crown the god of l<"ate;
 And there, upon her ebon throne she sate
 The awful fiend, dark goddess Mam-mitu,
@@ -7464,7 +7478,7 @@ And each an unknown mystery brings.
 In error still for e'er and aye.
 
 They delve for phantom shapes that ride
-Across their minds alone, — and they
+Across their minds alone, --- and they
 
 But mock the folly of man's pride.
 
@@ -7473,7 +7487,7 @@ In error still for e'er and aye!
 They learn but little all their lives,
 And Wisdom ever wings her way,
 
-Evading ever, — while man strives!
+Evading ever, --- while man strives!
 
 But hark! another song rings through the gloom.
 And, oh, how sweet the music far doth come!
@@ -7498,7 +7512,7 @@ And see! the hags disperse within the gloom.
 As those sweet sounds resound within the room;
 And now a glorious light doth shine around.
 Their rays of peace glide o'er the gloomy ground.
-And lo! 'tis Papsukul, our god of Hope, —
+And lo! 'tis Papsukul, our god of Hope, ---
 With cheerful face comes down the fearful slope
 Of rugged crags, and blithely strides to where
 Our hero stands, amid the poisonous air,
@@ -7550,7 +7564,7 @@ Across a dizzy arch 'mid sulphurous steam
 That covers all the grimy bridge with slime.
 He stands perplexed beside the waters grime.
 Which sluggish move adown the limbo black,
-With murky waves that writhe demoniac, —
+With murky waves that writhe demoniac, ---
 9
 
 As ebon serpents curling through the gloom
@@ -7562,9 +7576,9 @@ He cautious climbs the slippery walls of gloom,
 And dares not look beneath, lest Fate should come;
 He enters now the stifling clouds that creep
 Around the causeway, while its shadows sleep
-Upon the stream that sullen moves below, —
+Upon the stream that sullen moves below, ---
 
-He slips! — and drops his torch! it far doth glow
+He slips! --- and drops his torch! it far doth glow
 
 Beneath him on the rocks! Alas, in vain
 
@@ -7599,7 +7613,7 @@ O'er streams with beds of gold that sweetly twirled
 With woven splendor 'neath the blaze of gems
 That crown each tree with glistening diadems.
 The sounds of streams are weft with breezes, chant
-Their arias with trembling leaves, — the haunt Of gods! O how the tinkhng chorus rings! —
+Their arias with trembling leaves, --- the haunt Of gods! O how the tinkhng chorus rings! ---
 With rhythms of the unseen rusthng wings
 Of souls that hover here where joy redeems
 Them with a happiness that ever gleams.
@@ -7697,7 +7711,7 @@ The wondrous lazite bands now curling start
 
 And mingle with bright amethyst that glows,
 
-To a broad diamond band, — contracting grows
+To a broad diamond band, --- contracting grows
 
 To uk-ni stone, turquoise, and clustering pearls.
 
@@ -7728,7 +7742,7 @@ The fountain v.diich within the garden stood."
 
 ^ " Gesdin," the Tree of Life and Im- * " Tablet of the series; when the
 
-mortality. hero Izdubar saw the fountain." —
+mortality. hero Izdubar saw the fountain." ---
 
 2 See Sayce's edition Smith's " Chald. Sayce's edition Smith's " Chald. Ace.
 
@@ -7737,11 +7751,11 @@ Ace. of Gen.," p. 264. of Gen.," p. 264, 1. 14.
 * " Eridu," the Garden of Eden.
 Idem, pp. 84-86.
 
-TABLET Vni— COLU.MN I
+TABLET Vni--- COLU.MN I
 
 Thp: King's Adventure at the Gate of the Garden of
-THE Gods with the Two Maidens — One of Them
-Leads Him into the Happy Halls — Songs of the
+THE Gods with the Two Maidens --- One of Them
+Leads Him into the Happy Halls --- Songs of the
 Sabitu and Zi-si.
 
 A gate half opened shows the silvery sea
@@ -7858,7 +7872,7 @@ From me is my Heabani, faithful seer.
 
 Across a desert waste have I come here.
 
-And he has there to dust returned, — to dust —
+And he has there to dust returned, --- to dust ---
 
 0 how the love of my friend I did trust!
 
@@ -8090,7 +8104,7 @@ Alone stood thinking by young Siduri.
 
 The King leaned on his bow, and eyed the maid,
 
-A happy look came in his eyes, — and fled.
+A happy look came in his eyes, --- and fled.
 
 For lo! the curtain quick aside is pushed,
 
@@ -8154,12 +8168,12 @@ We here will welcome thee through endless time;
 
 But if thou goest, may they see thy face
 
-Thou seekest, — welcome thee, and thy heart bless.
+Thou seekest, --- welcome thee, and thy heart bless.
 
 COLUMN II
 
 The King on Leaving the Happy Halls Meets Ur-Hea,
-THE Boatman of the Seer Khasisadra — They Build
+THE Boatman of the Seer Khasisadra --- They Build
 a Ship and Embark on an Unknown Sea, and on
 Their Voyage Pass Through the Waters of Death
 
@@ -8205,7 +8219,7 @@ Not how I shall return, if I thus go.
 
 The awful Flood of Death awaits me there.
 
-Wide-stretching from this shore — I know not where."
+Wide-stretching from this shore --- I know not where."
 
 He rests his chin upon his hand in thought,
 
@@ -8225,7 +8239,7 @@ For one I know not! What! my fame alone!
 
 Mine honor should preserve! and royal state!
 
-Alas! this Fame is but a dream of — Fate!
+Alas! this Fame is but a dream of --- Fate!
 
 A longing after that w liich docs nut cheer
 
@@ -8239,7 +8253,7 @@ For my hard fate that wrings mine aching heart.
 
 I long for peace and rest, and I must start
 
-And find it, leave these luring bright abodes, —
+And find it, leave these luring bright abodes, ---
 
 I seek the immortality of gods.
 
@@ -8265,7 +8279,7 @@ I sadly all my weary days shall pass;
 
 No one shall love me as my seer, my friend.
 
-But what said Siduri? — There comes an end
+But what said Siduri? --- There comes an end
 
 At last to sorrow, joy will hopeful spring
 
@@ -8293,17 +8307,17 @@ And ku-trees; curving round green mez-kha-i.
 
 Through beds of flowers, that kiss its waves and spring
 
-Luxuriant, — with songs the groves far ring.
+Luxuriant, --- with songs the groves far ring.
 
 Now thinking of the ship, he turns his eyes,
 
-Toward the fountain, — springs up with surprise 1
+Toward the fountain, --- springs up with surprise 1
 
 " 'Tis he! the boatman comes! Ur-Hea comes!
 
-And, oh! at last, I'll reach the glistening domes Of Khasisadra's palaces, — at last
+And, oh! at last, I'll reach the glistening domes Of Khasisadra's palaces, --- at last
 
-My feet shall rest, — upon that land be placed."
+My feet shall rest, --- upon that land be placed."
 
 And now Ur-Hea nearer makes his way,
 And Izdubar addressing him, doth say:
@@ -8323,7 +8337,7 @@ Shall I the waters cross or take my way
 Through yon wide desert, for I start this day? "
 
 " Across the sea we go, for I with thee
-Return to him, — I know the winding way.
+Return to him, --- I know the winding way.
 Thine axe of bronze with precious stones inlaid
 With mine, we'll use beneath the pine-trees' shade."
 
@@ -8429,8 +8443,8 @@ Within that cavern's depths we will but drown."
 The hero said, " 'Tis only ghosts' abode! "
 " We go, then, Izdubar, its depths will sound,
 But we within that gloom will whirl around.
-Around, within that awful whirlpool black, —
-And once within, we dare not then turn back, —
+Around, within that awful whirlpool black, ---
+And once within, we dare not then turn back, ---
 How many times, my friend, I dare not say,
 'Tis written, we within shall make our way."
 
@@ -8439,7 +8453,7 @@ And billowed round them with continuous roar;
 Away! th^y whirl! with growing speed, till now
 They fly on lightnings' wings and ride the brow
 Of maddened tempests o'er the dizzy deep.
-So swift they move, — the waves in seeming sleep
+So swift they move, --- the waves in seeming sleep
 Beneath them, whirling there with force unseen.
 
 But see! Updarting with a sulphurous gleen,
@@ -8471,7 +8485,7 @@ And cries:
 And now a blinding flash disparts the black
 And heavy air, a moment light doth break;
 And see! the King leans fainting 'gainst the mast,
-With glaring eyeballs, clenched hands. — aghast!
+With glaring eyeballs, clenched hands. --- aghast!
 Behold! that pallid face and seal}- hands!
 A leper white, accurst of gods, he stands!
 A living death, a life of awful woe,
@@ -8495,7 +8509,7 @@ Away the ship doth ride before the wind!
 
 The darkness deep from them has fled away.
 
-The fiends are gone! — the vessel in the spray
+The fiends are gone! --- the vessel in the spray
 
 With spreading sails has caught the glorious breeze.
 
@@ -8513,13 +8527,13 @@ COLUMN III
 
 Khasisadra on the Shore Sees the Vessel Coming, and
 Returning to His Palace, Sends His Daughter Mua
-TO Welcome Izdubar — Meeting of the King and Sage
+TO Welcome Izdubar --- Meeting of the King and Sage
 
 Beneath a ku-tree Khasisadra eyes
 The spreading sea beneath the azure skies,
 An aged youth with features grave, serene,
 Matured with godly wisdom; ne'er was seen
-Such majesty, nor young, nor old, — a seer
+Such majesty, nor young, nor old, --- a seer
 In purpose high. The countenance no fear
 Of death has marred, but on his face sublime
 The perfect soul has left its seal through time.
@@ -8551,7 +8565,7 @@ That thou shouldst come to seek my father here? "
 
 " 'Tis true, my daughter dear, a seer had I,
 
-Whom I have lost, — a dire calamity;
+Whom I have lost, --- a dire calamity;
 
 By his advice and love I undertake
 
@@ -8567,7 +8581,7 @@ Himself to rest amid the mountains wild.
 He was a warrior, with him I killed
 Khumbaba, Elam's king who safely dwelt
 Within a forest vast of pines, and dealt
-Destruction o'er the plains. We razed his walls —
+Destruction o'er the plains. We razed his walls ---
 My friend at last before me dying falls.
 
 Alas! why did my seer attempt to slay
@@ -8795,7 +8809,7 @@ And like the Earth with rays divine!
 
 Quick! with the khis-ib-ta® to bring
 
-High Heaven's Charm — bind round his brow!
+High Heaven's Charm --- bind round his brow!
 
 The sis-bu'^ place around his hands!
 
@@ -8821,7 +8835,7 @@ Restore his health and make his skin
 Shine beautifully, beard and hair
 Restore! make strong with might his loins!
 And may his body glorious shine
-As the bright gods! —
+As the bright gods! ---
 
 Ye winds him bear!
 Immortal flesh to his soul joins!
@@ -8854,7 +8868,7 @@ Come forth with joy! Come to the skies!"
 
 And lo! his leprosy has fled away!
 
-He stands immorlal, — purged! released from clay!
+He stands immorlal, --- purged! released from clay!
 
 COLUMN \'
 
@@ -8968,18 +8982,18 @@ And shall I let thee from me go afar? "
 
 " But Mua, we immortal are, and we
 There might return; and thou on earth shalt see
-The glories of my kingdom, — be my queen!
+The glories of my kingdom, --- be my queen!
 Upon a couch I'll seat thee, there to reign
-With me, my beauteous queen, — beside me sit;
+With me, my beauteous queen, --- beside me sit;
 And kings will come to us and kiss thy feet.
 With all my wealth I'll clothe thee, ever love
 Thee, fairest of these glorious souls that move
 Within this Happy World. My people there
-Shall love us, — ever drive away all care! "
+Shall love us, --- ever drive away all care! "
 
 When Mua heard him offer thus his hand,
 
-She then unbinds him, — thoughtful now doth stand.
+She then unbinds him, --- thoughtful now doth stand.
 
 COLUMN VI
 
@@ -9009,7 +9023,7 @@ Have that far look of spirits viewing men
 
 On earth, from the invisible mane.
 
-That erstwhile rests upon the mortal eye, —
+That erstwhile rests upon the mortal eye, ---
 
 A longing for that home beyond the sky;
 
@@ -9052,7 +9066,7 @@ Me there with sadness, and my heart would break!
 
 And yet I learn that it is glorious, sweet!
 
-To there enjoy its happiness,- — so fleet
+To there enjoy its happiness,- --- so fleet
 
 It speeds to sorrowing hearts to turn their tears
 
@@ -9083,8 +9097,8 @@ From thy dear plains how can my soul depart?
 0 Mua, Mua! how my heart now sings!
 Thy love is sweeter than all earthly things!
 
-1 would I were not crowned a king! — away
-From this bright land — here would I ever stay!
+1 would I were not crowned a king! --- away
+From this bright land --- here would I ever stay!
 As thou hast said, I soon will here return;
 
 The earth cannot withhold me from this bourne,
@@ -9409,11 +9423,11 @@ Chaldcc et d'Assyrie, page 73 and following " Extrait des Annales de philosophie
 
 There is considerable difficulty and a consequent divergence
 of opinion as to the precise date when Assur-nasir-pal ascended
-the throne. But he most probably reigned from 883 to 858 B.C.
+the throne. But he most probably reigned from 883 to 858 BCE
 
 It need scarcely be remarked that Assur-nasir-pal is a different person from the well-known Sardanapalus of classic writers,
 or Assur-bani-pal, the son of Esar-haddon, who reigned from
-about B.C. 668 to 625.
+about BCE 668 to 625.
 
 It will be seen from the inscription that the campaigns of
 Assur-nasir-pal took place in the mountains of Armenia, in
@@ -9490,7 +9504,7 @@ speech of the gods
 
 9 no god has ever disregarded, the gatherer of life, the god(?)
 whose prayers are good, whose abode is in the city of Calah,
-a great Lord, my Lord — (who am) Assur-nasir-pal, the
+a great Lord, my Lord --- (who am) Assur-nasir-pal, the
 mighty King,
 
 10 King of multitudes, a Prince unequalled, Lord of all the
@@ -9568,7 +9582,7 @@ of His Majesty over Princes
 in all their country, the upper and the lower I chastised, and
 tribute and impost
 
-28 upon them I established, capturing the enemies of Assur —
+28 upon them I established, capturing the enemies of Assur ---
 mighty King, King of Assyria, son of Tuklat-Adar who all
 his enemies
 
@@ -9627,7 +9641,7 @@ regions, bountifully hath added his invincible power to the
 forces of my government,
 
 42 putting me in possession of lands, and mighty forests for
-exploration hath he given and urgently impelled me — by the
+exploration hath he given and urgently impelled me --- by the
 might of Assur my Lord,
 
 43 perplexed paths, difficult mountains by the impetuosity of
@@ -9644,7 +9658,7 @@ for the passage
 
 ^ The god Yav may be the Yaveh of ' Or, shade. This may refer to the
 
-the Moabite stone. eclipse of July 13, 885 B.C.
+the Moabite stone. eclipse of July 13, 885 BCE
 
 46 of chariots and armies v.as not suited I passed, and to t'r.o
 land of Nairi' I went: Libie, their capital city, the cities
@@ -9741,7 +9755,7 @@ I made; a history of my supremacy
 69 upon it I wrote, and (on) a mountain of the land of Ikin(?)
 in the city of Assur-nasir-pal at the foot I erected (it). In
 my own eponym in the month of July^ and the 24th day
-(probably B.C. 882).
+(probably BCE 882).
 
 70 in honor of Assur and Istar the great gods my Lords, I
 quitted the city of Nineveh: to cities situated below Nipur
@@ -9873,7 +9887,7 @@ of Assyria my predecessor
 f Compare 2 Mace. vii. 7 for a some- « Compare Ps. Ixxiv. 3, •' Lift up thy
 
 what similar proceeding. The custom feet." etc.
-may also be alluded to in Mic. iii. 3. "About 882 B.C.
+may also be alluded to in Mic. iii. 3. "About 882 BCE
 
 103 to the city of Hasiluha had united, had revoked: Dandamusa ^^ a city of my dominion marched out to subdue
 (them);
@@ -10073,7 +10087,7 @@ fortified cities
 captured; the soldiers were discouraged; they took possession of a mountain difficult of access; I, Assur-nasir-pal
 impetuously after them
 
-8 About 88i B.C. s Corresponding to the Jewish month
+8 About 88i BCE s Corresponding to the Jewish month
 
 * A scriptural phrase of frequent oc- Tisri, and to part of our September,
 
@@ -10179,7 +10193,7 @@ passage
 
 61 of chariots and an army was not adapted, I passed; to the
 
-' About 880 B.C. 8 The Hebrew Sivan. " I.e., in comparison with.
+' About 880 BCE 8 The Hebrew Sivan. " I.e., in comparison with.
 
 royal city Zamri of Amika of Zamua I drew near; Amika
 from before the mighty prowess of my formidable attack
@@ -10251,7 +10265,7 @@ armies, with instruments [axes] of iron I cut through and
 
 yy with rollers of metal I beat down) with the chariots and
 troops I brought over to the city of Tiglath-assur-azbat in
-the land of Lulu — the city of Arakdi they call it — I went
+the land of Lulu --- the city of Arakdi they call it --- I went
 down;
 
 78 the Kings of Zamue, the w^hole of them, from before the
@@ -10327,7 +10341,7 @@ various copper articles I received; from Zazabuka I withdrew;
 received there the tributes due from Zura in oxen, sheep,
 goats and kam copper:
 
-'^ About 8/9 B.C. ^Goddesses. * Urasi.
+'^ About 8/9 BCE ^Goddesses. * Urasi.
 
 94 from Izria I withdrew; in the land of Kasyari I halted;
 Madara (and) Anzi two cities of the territory I captured
@@ -10373,7 +10387,7 @@ I overthrew razed and converted to a heap of ruins.
 up in my stores; on rafts
 
 104 I passed the Tigris; all night I descended; to Pitura a
-strong town of Dirrai I drew near — a very strong city —
+strong town of Dirrai I drew near --- a very strong city ---
 
 105 two forts facing each other, whose castle like the summit of a mountain stood up: by the mighty hands of
 Assur my Lord and the impetuosity of my army and my
@@ -10543,7 +10557,7 @@ the names of the months were ex- " Nisroch-Salmon."
 
 changed for the Chaldean; and the old ' Sivan.
 
-Hebrew names, such as " Abib " ^ 878 B.C.
+Hebrew names, such as " Abib " ^ 878 BCE
 
 (Exod. xiii. 4), " Zif " (i Kings vi. ' Hgi,. " Tanimuz," Assyr. " Du-
 
@@ -10645,7 +10659,7 @@ burned with fire; their crops I seized 460 soldiers
 
 33 their fighting men by (my) weapons I destroyed; I took
 20 alive and impaled them on stakes; - on ships which I
-had built —
+had built ---
 
 34 in 20 ships which were drawn up on the sand at Haridi
 I crossed the Euphrates. The land of Zuhaya and Laqai
@@ -10903,7 +10917,7 @@ Princes of the environs of the sea-coast,
 86 of the lands of Tyre, Sidon, Gebal, Alaacah - Maizai Kaizai,
 of Phoenicia and Arvad
 
-87 on the sea-coast — silver, gold, tin, copper, kaui of copper,
+87 on the sea-coast --- silver, gold, tin, copper, kaui of copper,
 vestments of w'ool and linen, pagutir^ great and small,
 
 88 strong timber, wood of ki * teeth of dolphins, the produce
@@ -10924,7 +10938,7 @@ trees, and carried them to Nineveh; (and)
 eponym of Samas-nuri '^ in the honor of the great Lord
 Assur my Lord on the 20th of April ^
 
-93 from Calach I withdrew — crossed the Tigris — descended
+93 from Calach I withdrew --- crossed the Tigris --- descended
 to the land of Kipani, and there, in the city of Huzirina,
 received the tribute of the governors of its cities.
 
@@ -10937,7 +10951,7 @@ and placed them in the cities of * Ebony.
 
 Samaria instead of the children of ^ The mountain chain which divides
 
-Israel." — 2 Kinps xvii. 24. bvria from Cilicia.
+Israel." --- 2 Kinps xvii. 24. bvria from Cilicia.
 
 1 " Akhari." Heb. ntlS I P?"; P^?"^'.
 
@@ -10946,12 +10960,12 @@ Israel." — 2 Kinps xvii. 24. bvria from Cilicia.
 2 Literally, Zurai, Sidunai, Gubalai, * I.e., "the sun is my light."
 Makullat. « Assyr. " Airu," Heb. " lyar." 866
 
-B.C.
+BCE
 
 95 gold, oxen, sheep. In those days I received the tribute in
 beams for bridges, cedar wood, silver, gold of Qatuzili
 
-96 of Commagcne '^ — withdrew from Huzirina and took my
+96 of Commagcne '^ --- withdrew from Huzirina and took my
 way upward along the banks of the Euphrates; to Kubbu.^
 
 97 I crossed over into the midst of the towns of Assa in
@@ -11021,7 +11035,7 @@ soldiers
 caught; some I impaled on stakes; '' of others
 
 113 the eyes I put out: the remainder I carried off to Assur
-and took the city as my own possession — I who am Assurnasir-pal mighty King, King of Assyria son of TuklatAdar, (Tuklat-Ninip)
+and took the city as my own possession --- I who am Assurnasir-pal mighty King, King of Assyria son of TuklatAdar, (Tuklat-Ninip)
 
 114 great King, powerful King, King of legions. King of
 Assyria son of Vul-nirari ** great King, mighty King,
@@ -11051,7 +11065,7 @@ unequivocal service to the forces of my government
 
 the thickets ot the forest with iron"; His reign probably terminated at 889
 
-also Ezek. xxxix. 10. B.C.
+also Ezek. xxxix. 10. BCE
 
 s The inscription is here defaced. ® Literally, shepherd. Thus, Isa. xliv.
 
@@ -11102,7 +11116,7 @@ lands
 
 129 to his yoke hath subdued, and the rebels against Assur,
 high and low, hath opposed and imposed on them impost
-and tribute — Assur-nasir-pal
+and tribute --- Assur-nasir-pal
 
 130 mighty King, glory of the Moon-god - worshipper of Anu,
 related ^ to Yav, suppliant of the gods, an unyielding ser-
@@ -11127,7 +11141,7 @@ forests, and who Kings mighty and fearless from the rising
 132 to the setting of the sun to my yoke subjugated.
 
 The former city of Calach which Shalmaneser King of
-Assyria going before me, had built —
+Assyria going before me, had built ---
 
 133 that city was decayed and reduced to a heap of ruins: that
 city I built anew; the people captured by my hand of the
@@ -11453,13 +11467,13 @@ And he puts his trust in holiness, symbolized by the white
 ' A long list of them is given. p. 56.
 
 cloth in his right hand. Then follow some obscure lines about
-the spirits —
+the spirits ---
 
 Their heads shall remove from his head:
 their hands shall let go his hands:
 their feet shall depart from his feet:
 
-which perhaps may be explained thus — we learn, from another
+which perhaps may be explained thus --- we learn, from another
 tablet, that the various classes of evil spirits troubled different
 parts of the body. Some injured the head, some the hands
 and feet, etc., etc. Therefore the passage before us may mean:
@@ -11649,7 +11663,7 @@ with the Assyrian rendering alone. The charms are rhythmic,
 and illustrate the rude parallelism of Accadian poetry. The
 Assyrian translations were probably made for the library of
 Sargon of Agane, an ancient Babylonian monarch who
-reigned not later than the sixteenth century B.C.; but the copy
+reigned not later than the sixteenth century BCE; but the copy
 we possess was made from the old tablets by the scribes of
 Assur-bani-pal. The larger part of the first column has already been translated by M. Francois Lenormant in " La
 Magic chcz Ics Chaldccns," p. 59. The tablet on which the
@@ -11660,7 +11674,7 @@ Ancient Babylonian Charms
 
 COLUMN I
 
-1 The beginning ^ — The baneful charm - like an evil demon
+1 The beginning ^ --- The baneful charm - like an evil demon
 
 acts against ^ the man.
 
@@ -12847,7 +12861,7 @@ THE REVOLT IN HEAVEN
 
 '■3^
 
-was cast out — he was cast out into the earth and his angels
+was cast out --- he was cast out into the earth and his angels
 were cast out with him."
 
 The Revelation of St. John was written in the first century,
@@ -13067,7 +13081,7 @@ Translated by Rev. A. H. Sayce, M.A.
 THE following psalm for remission of sins is remarkable
 alike for its deeply spiritual tone and for its antiquity.
 As it is written in Accadian, its composition must be
-referred to a date anterior to the seventeenth century B.C.,
+referred to a date anterior to the seventeenth century BCE,
 when that language became extinct. An Assyrian interlinear
 translation is attached to most of the lines; some, however,
 are left untranslated. The tablet is unfortunately broken in
@@ -13287,7 +13301,7 @@ compartments of sculpture representing the tribute brought
 to the Assyrian King by vassal princes, Jehu of Israel being
 among the number. Shalmaneser, whose annals and conquests
 are recorded upon it, was the son of Assur-natsir-pal, and died
-in 823 B.C., after a reign of thirty-five years. A translation of the
+in 823 BCE, after a reign of thirty-five years. A translation of the
 inscription was one of the first achievements of Assyrian decipherment, and was made by Sir. H. Rawlinson; and Dr.
 Hincks shortly afterward (in 1851) succeeded in reading the
 name of Jehu in it. M. Oppert translated the inscription in
@@ -13996,8 +14010,8 @@ and for the honor of my majesty? " Compare column vii, line
 
 32.
 
-The reign of Nebuchadnezzar extended from B.C. 604 to 561.
-In B.C. 598 he laid siege to Jerusalem (2 Kings xxiv.) and
+The reign of Nebuchadnezzar extended from BCE 604 to 561.
+In BCE 598 he laid siege to Jerusalem (2 Kings xxiv.) and
 made Jehoiachin prisoner, and in 588 again captured the city,
 and carried Zedekiah, who had rebelled against him, captive
 to Babylon (2 Kings xxv.). Josephus gives an account of his
@@ -15612,7 +15626,7 @@ thyself.
 
 ^ See also Lenormant, " Chaldean * " Like a wife thou submittest thy-
 
-Magic," p. 180. self, cheerful and kindly."— Sayce.
+Magic," p. 180. self, cheerful and kindly."--- Sayce.
 
 ^ In the Assyrian version, " The arch- ' In the Assyrian version, " Thou art
 
@@ -17208,17 +17222,17 @@ passages of the text; the period is the ing twelve lunar periods of 1,805, and
 
 Chaldean eclipse period of 1,805 years, twelve solar periods of 1,460 years, viz.,
 
-and ended in 71J B.C. Instead of this 39.180 years. The very event may have
+and ended in 71J BCE Instead of this 39.180 years. The very event may have
 
 passage, the stele of Larnaca, now in happened eleven years afterward, 2506
 
 Berlin, has, " from the remotest times, n.c. The Deluge happened, according
 
-the beginning of Assyria, until now." to the Chaldeans, in 41697 B.C.
+the beginning of Assyria, until now." to the Chaldeans, in 41697 BCE
 
 The commencement of the period, 2517 ^ This royal name is still found in the
 
-B.C., coincided very nearly with the capt- Armenian texts of Van.
+BCE, coincided very nearly with the capt- Armenian texts of Van.
 
 lakin, that my arm had conquered. I instituted my Lieutenant as Governor, and subdued them under my rule. I
 previously took from them 150 chariots, 1,500 horsemen,
@@ -17261,7 +17275,7 @@ people. Merodach-Baladan heard of the approach of my
 
 translated in the seventh volume. maic canon (721-709).
 
-' Elam. We are now certain of this " From 721 to 709 B.C.
+' Elam. We are now certain of this " From 721 to 709 BCE
 identification.
 
 expedition, dreading the terror of his own warriors, he fled
@@ -17538,7 +17552,7 @@ Albert Ellery Bergh
 
 ILLUSTRATED WITH NEARLY THREE-
 
-HUNDRED PHOTOGRAVURES—ETCH-
+HUNDRED PHOTOGRAVURES---ETCH-
 
 INGS, COLORED PLATES, AND FULL-PAGE
 
@@ -17575,10 +17589,10 @@ in the world.
 
 It is no doubt owing to the conversion of the entire Armenian nation under the passionate preaching of Gregory the
 Illuminator that most of the literary products of primitive
-Armenia — the mythological legends and chants of heroic
-deeds sung by bards — are lost. The Church would have none
+Armenia --- the mythological legends and chants of heroic
+deeds sung by bards --- are lost. The Church would have none
 of them. Gregory not only destroyed the pagan temples, but
-he sought to stamp out the pagan literature — the poetry and
+he sought to stamp out the pagan literature --- the poetry and
 recorded traditions that celebrated the deeds of gods and
 goddesses and of national heroes. He would have succeeded,
 too, had not the romantic spirit of the race clung fondly to
@@ -17588,7 +17602,7 @@ ballads as late as the twelfth century. Curiously enough, we
 owe the fragments we possess of early Armenian poetry to
 these same ecclesiastical critics. These fragments suggest a
 popular poesy, stirring and full of powerful imagery, employed mostly in celebrating royal marriages, religious feasts,
-and containing dirges for the dead, and ballads of customs — not a wide field, but one invaluable to the philologist and to
+and containing dirges for the dead, and ballads of customs --- not a wide field, but one invaluable to the philologist and to
 ethnological students.
 
 The Christian chroniclers and critics, however, while preserving but little of the verse of early Armenia, have handed
@@ -17639,13 +17653,13 @@ the providing of a vehicle of expression, namely an alphabet,
 so deeply had the Persian domination imprinted itself upon the
 land. As might be expected, the primary results of the revival were didactic, speculative, or religious in character.
 Mysticism at that time flourished in the monasteries, and the
-national spirit — the customs, habits, joys, an-d emotions of
-the people — had not yet found re-expression in script. The
+national spirit --- the customs, habits, joys, an-d emotions of
+the people --- had not yet found re-expression in script. The
 Church became the dominant power in literature, and if it is
 true on the one hand that the Armenian people lost intellectual
 independence, it is also true on the other that they gained that
 religious zeal and strength which enabled them as an entity
-— a united race — to survive the fatal day of Avarair, where,
+--- a united race --- to survive the fatal day of Avarair, where,
 under the shadow of hoary Ararat, the Armenian Marathon
 was fought and lost, and Vartan, their national hero, died.
 All sorts of traditions cluster still around the battlefield oi
@@ -17653,7 +17667,7 @@ Avarair. A species of red flower grows there that is nowhere else to be found, a
 red blossom sprang originally from the blood of the slain
 Armenian warriors. On the plain of Avarair is also found a
 small antelope with a pouch upon its breast secreting musk
-— a peculiarity gained, they say, from feeding on grass soaked
+--- a peculiarity gained, they say, from feeding on grass soaked
 with the blood of Armenia's sons. And at Avarair, too, it is
 said that the lament of the nightingales is ever, " Vartan, Vartan." The story of these times is preserved in fragments in
 the religious chronicles of Lazarus of Pharb and of Eliseus.
@@ -17670,11 +17684,11 @@ hymnological productions of the Armenian Church.
 
 There are no chronicles extant that can be called purely
 Armenian. The oldest chronicles that we have of Armenia
-— and there are many — wander off into the histories of other
-people — of the Byzantines, for instance, and even of the Crusaders. The passages that deal with Armenia are devoted
+--- and there are many --- wander off into the histories of other
+people --- of the Byzantines, for instance, and even of the Crusaders. The passages that deal with Armenia are devoted
 almost entirely to narrating the sufferings of the Armenians
 under the successive invasions of pagans and Mahometans, and
-the efforts made to keep the early Christian faith — forming
+the efforts made to keep the early Christian faith --- forming
 almost a national book of martyrs, and setting forth a tragic
 romance of perpetual struggle. These records cannot be called
 Armenian literature in a real sense, for in many cases they were
@@ -17694,7 +17708,7 @@ that in the folk-lore and fables of all nations can be traced
 kinship of imagination, with a variety of application that differs with the customs and climate of the people. But the Armenian is especially rich in a variety of elements. We
 meet enchantments, faculties, superstitions, and abstract ideas
 personified, which are supposed to attach miraculous meanings to the most ordinary events. Dreams, riddles, and the
-like — all are there. The one strange personification is the
+like --- all are there. The one strange personification is the
 Dew. The Dew is a monster, half demon, half human; sometimes harmless, sometimes malevolent; mortal, indeed, but
 reaching a good or, shall we say, an evil old age. The Dew
 figures in nearly all Armenian fairy-tales.
@@ -17743,27 +17757,27 @@ c>BrZ^d5-^^t?f77t^
 
 ### Armenian Literature
 
-| Section | Page |
-| :--- | :--- |
-| Proverbs and Folk-lore | 3 |
-| The Vacant Yard | 19 |
-| Armenian Poems | 47 |
-| — A Plaint | 47 |
-| — Spring in Exile | 48 |
-| — Fly, Lays of Mine | 48 |
-| — The Woe of Araxes | 49 |
-| — The Armenian Maiden | 51 |
-| — One of a Thousand | 52 |
-| — Longing | 53 |
-| David of Sassun | 57 |
-| The Ruined Family | 81 |
+Section Page
+:--- :---
+Proverbs and Folk-lore 3
+The Vacant Yard 19
+Armenian Poems 47
+--- A Plaint 47
+--- Spring in Exile 48
+--- Fly, Lays of Mine 48
+--- The Woe of Araxes 49
+--- The Armenian Maiden 51
+--- One of a Thousand 52
+--- Longing 53
+David of Sassun 57
+The Ruined Family 81
 
 ## ILLUSTRATIONS
 
-| Illustration | Description | Facing Page |
-| :--- | :--- | :--- |
-| **Euterpe** | Photogravure from the original painting by Paul Baudry | Frontispiece |
-| **Page from an Armenian Menology** | Fac-simile manuscript of the Sixteenth Century | 54 |
+Illustration Description Facing Page
+:--- :--- :---
+**Euterpe** Photogravure from the original painting by Paul Baudry Frontispiece
+**Page from an Armenian Menology** Fac-simile manuscript of the Sixteenth Century 54
 
 ---
 
@@ -18359,7 +18373,7 @@ As the King had no son, he sent the youth in place of a son
 to the King of the West to demand his daughter, according
 to agreement.
 
-He went on and on — how long it is not known — and saw
+He went on and on --- how long it is not known --- and saw
 someone with his ear to the ground listening.
 
 " Who are you? " the youth asked.
@@ -18528,7 +18542,7 @@ his dwelling-place, and he who had pierced the steel shield with
 the steel spear took the maiden and came again to the King
 of the East. And the King of the East gave him his own
 daughter, whom the youth had long loved, for his wife. So
-he had two wives — one was the daughter of the King of the
+he had two wives --- one was the daughter of the King of the
 East, the other the daughter of the King of the West.
 
 At night, when they lay down to sleep, he said: " Now, I
@@ -18692,7 +18706,7 @@ kitchen and the hen-house. Here to the right of the gate a
 spring." With these words Nurse Hripsime took a step forward, looked about, and said: "What is this? the spring
 gone, too! I recollect as if to-day that there was a spring of
 sweet water on the very spot where I am standing. What can
-have happened to it! I know that everything can be lost —
+have happened to it! I know that everything can be lost ---
 but a spring, how can that be lost?" Hripsime stooped and
 began to scratch about with her stick. " Look here," she said
 suddenly, " bad boys have filled up the beautiful spring with
@@ -18731,8 +18745,8 @@ words, " That is for you; it is good for the cough." It never
 happened that I went out of the store without receiving something from him. In winter-time he treated me to sugar candy,
 and in summer-time he always had in his store great baskets
 full of apricots, plums, pears, and apples, or whatever was
-in season in his garden. His garden at that time — some thirty
-or thirty-five years ago — was very famous. One time my
+in season in his garden. His garden at that time --- some thirty
+or thirty-five years ago --- was very famous. One time my
 mother sent me to Sarkis's store to procure, as I remember,
 saffron for the pillau. Sarkis gave me what I desired, and
 then noticing, probably, how longingly I looked toward the
@@ -18827,7 +18841,7 @@ directed toward the beautiful Takusch. Oh, well-remembered
 years! What a pity it is that they pass by so quickly! Two
 or three months later I journeyed to the Black Sea, where I
 was apprenticed to a merchant, and since that time I have not
-been in my native city — for some twenty-four years — and all
+been in my native city --- for some twenty-four years --- and all
 that I have told was awakened in my memory in a trice by my
 meeting with Hripsime.
 
@@ -18847,7 +18861,7 @@ I asked.
 " No. I was only once in his house, and then as a boy."
 
 " Oh, then! That w-as his happiest time. What pleasant
-times we had in his garden! Formerly it was not as it is now — not a trace of their pleasant garden remains. The house
+times we had in his garden! Formerly it was not as it is now --- not a trace of their pleasant garden remains. The house
 has disappeared. Look again: yonder was the kitchen, there
 the hen-house, there the barn, and here the spring."
 
@@ -18922,8 +18936,8 @@ could not have such things, for she said, ' May those who pass
 by and smell the fragrance of my cakes never desire them in
 vain.'
 
-" About this time my husband died — may God bless him!
-— and I was living alone. Sarkis's wife came to me and
+" About this time my husband died --- may God bless him!
+--- and I was living alone. Sarkis's wife came to me and
 said, ' Why will you live so lonely in your house? Rent it
 and come to us.' Of course, I did not hesitate long. I laid
 my things away in a large chest and moved over to their
@@ -18951,8 +18965,8 @@ as the hand of God was their house to me. Twelve months in
 every year I sat peacefully at my spinning-wheel and carried
 on my own business.
 
-" Once during dog-days — Takusch was at that time fifteen
-years old and beginning her sixteenth year — toward evening,
+" Once during dog-days --- Takusch was at that time fifteen
+years old and beginning her sixteenth year --- toward evening,
 according to an old custom, we spread a carpet in the garden
 and placed a little table there for tea. Near us steamed and
 hissed the clean shining tea-urn, and around us roses and
@@ -18989,12 +19003,12 @@ That is very line for you. What magnificent air you have
 here! Good-evening, Mr. Sarkis. Good-evening, Mrs.
 Mairam. Good-evening, Hripsime. What are you doing?
 I like to drink tea in the open air. What a beautiful garden
-you have. Dare I taste these cherries? Well — they are not
+you have. Dare I taste these cherries? Well --- they are not
 bad; no, indeed, they are splendid cherries. If you will give me
 a napkin full of these cherries I will carry them home to my
 wife. And what magnificent apricots! Mr. Sarkis, do you
-know what! Sell me your house. No, I will say something better to you. Come to my store — you know where it
-is — yonder in the new two-storied house. Yes, yes, come
+know what! Sell me your house. No, I will say something better to you. Come to my store --- you know where it
+is --- yonder in the new two-storied house. Yes, yes, come
 over there and we will sit down pleasantly by the desk and
 gossip about Moscow happenings.'
 
@@ -19012,7 +19026,7 @@ God? " Hripsime asked.
 does not know the scoundrel? Go to the brokers, and they
 will tell you many he has thrown out of house and home by
 fraud and hunted out of the city. Have you ever seen how a
-bird-catcher lures the birds into his net — how he whistles to
+bird-catcher lures the birds into his net --- how he whistles to
 them? That's the way this John gets the people into his traps.
 To-day he will act as if altogether stupid. To-morrow he is
 suddenly shrewd, and understands the business well. Then
@@ -19199,7 +19213,7 @@ the fruit like a wolf. You saw the garden, and at once wanted
 to buy. Now you want the ring, and will exchange for it
 your wares. What sort of tomfoolery are you talking to us?
 You are either crazy yourself or will make others so. The
-apple falls not far from the stem — one sees that in vou.'
+apple falls not far from the stem --- one sees that in vou.'
 
 " * Aunt Hripsime, why are you so cross? Dare one not
 jest?'
@@ -19295,7 +19309,7 @@ will make double on it. Would I lie for the sake of such a
 trifle? Whom do you think you have here? But that is a
 small matter: I have still something better to propose. You
 must take a shipment of tea from me. In the winter the price
-will rise, and you can make enormous profits out of it. Tomorrow I will send you one chest — for the present. Well?
+will rise, and you can make enormous profits out of it. Tomorrow I will send you one chest --- for the present. Well?
 Now, really, I will send it to you."
 
 " ' My dear John,' exclaimed Sarkis, ' you must know how
@@ -19333,7 +19347,7 @@ shall see how thankful to me you will be in time. Do you believe that I am your 
 Now, the matter is settled. In the morning I will send you
 several chests of tea and put them in your store. You will
 find out that Hemorrhoid Jack wishes you no ill. Yes, I will
-say something even better. You know what machorka is? —
+say something even better. You know what machorka is? ---
 a cheap tobacco that the poor folk smoke. What do you
 think of this stuflf? Do you think that there is a class of goods
 more profitable than this? People make thousands from it,
@@ -19350,7 +19364,7 @@ I
 ^
 
 sack. The stupid fellow didn't know what he ought to expect
-for it, and he needed money — this gander! I brought him
+for it, and he needed money --- this gander! I brought him
 home with me; had brandy, bread, and ham set out; and, after
 a little talk back and forth, I bought 400 chests at half price.
 Half I paid in cash, the rest in eighteen months. Now, wasn't
@@ -19401,12 +19415,12 @@ adieus, and went away.
 
 " It was nearly one o'clock; Alairani and Takusch were sitting there asleep and I also was very sleepy, but I fought
 against my sleepiness to watch that devil of a Hemorrhoid
-Jack. Mankind can be a priest to mankind — also a Satan!
+Jack. Mankind can be a priest to mankind --- also a Satan!
 
 " When he was in the street, Sarkis said to me: ' What a
 wonderful conversation we have had this evening. Of all this
 man has said, I understand nothing. His purposes are not
-exactly bad, but I don't know how it happens — my heart
+exactly bad, but I don't know how it happens --- my heart
 presages something of evil.'
 
 " I was just going to answer him when suddenly I sneezed;
@@ -19527,7 +19541,7 @@ soon as the agreement was made I would begin business. Do
 you see? I have not advertised that I was going to handle
 the goods, yet everybody knows it and one customer after
 another comes into my store. How will it be when the goods
-are put on sale? — they will fight for them. It will give me a
+are put on sale? --- they will fight for them. It will give me a
 great deal to do; I must only go to John and settle on the
 terms. Yes, little mother, such a wholesale trade is not to
 be despised; the wholesaler can often make more money in a
@@ -19541,7 +19555,7 @@ was said about Jack.
 evening we were sitting together chatting comfortably when
 the door opened softly and an old woman entered. I knew
 immediately that she was a matchmaker. In three days
-Takusch was betrothed to a plain, middle-rate man. The wedding was to take place the next winter on her father's nameday. As a dowry her parents promised 3,000 rubles — 1,500
+Takusch was betrothed to a plain, middle-rate man. The wedding was to take place the next winter on her father's nameday. As a dowry her parents promised 3,000 rubles --- 1,500
 in cash, and the rest in jewels.
 
 " Tagusch was at that time fifteen years old. Although I
@@ -19562,7 +19576,7 @@ black, and her face like snow. Her checks were tinged rosered, and her glance! t
 was brighter than a genuine Holland diamond. Her eyelashes
 were so long that they cast shadows on her cheeks. No, such
 a charming creature I have never seen in dreams, let alone
-reality. She was — God forgive my sins — the pure image of
+reality. She was --- God forgive my sins --- the pure image of
 the Mother of God in our church; yes, she was even more
 beautiful. When I looked at her I could not turn my ejes
 away again. I gazed at her and could not look enough. On
@@ -19667,8 +19681,8 @@ so every trace of them was lost.
 
 " Many years later a gentleman came from Stavropol to
 our city, who gave me some news of the poor wretches. They
-had settled in a Cossack village — he told me the name, but I
-have forgotten — where at first they suffered great want; and
+had settled in a Cossack village --- he told me the name, but I
+have forgotten --- where at first they suffered great want; and
 just as things were going a little better with them, Mairam and
 Sarkis died of the cholera and Takusch and Toros were left
 alone. Soon after, a Russian officer saw Takusch and was
@@ -20086,8 +20100,8 @@ these children was a heathen, but their mother was a worshipper of the cross,-* 
 people.
 
 This same caliph again gathered together a host and fell
-upon our people. This time — I bow before thy holy miracle,
-O sainted John — this time our people pressed him sorely, and
+upon our people. This time --- I bow before thy holy miracle,
+O sainted John --- this time our people pressed him sorely, and
 in his affliction he cried unto his idols: " I\Iay the gods save
 me from these people; bring me to my city safe and well, and
 both my sons will I sacrifice unto them."
@@ -20238,8 +20252,8 @@ And they began first to make the huts. So strong was
 Abamehk that he built ten huts every day, while the others
 brought in wood for their building. In four days they finished
 forty huts, and then they set about building the house and
-finished it. They set up stone pillars in rows — so powerful
-were they — and laid a stone base under them, and the house
+finished it. They set up stone pillars in rows --- so powerful
+were they --- and laid a stone base under them, and the house
 was made ready.
 
 Abamelik rode to the King of Kraput-Koch and said: " We
@@ -20250,8 +20264,8 @@ have not forgotten me."
 
 So the King gave Abamelik his daughter in marriage and
 made him his close friend. After the wedding the King and
-the young pair came together at the palace — and Uncle
-Toross * was with them — and they mounted their horses and
+the young pair came together at the palace --- and Uncle
+Toross * was with them --- and they mounted their horses and
 departed. Abamelik rode before them to point out the way.
 When they were approaching the castle the King suddenly
 turned his horse as if to ride back again, and said: " You
@@ -20301,7 +20315,7 @@ caliph said: " My life to thee, great god! Thou hast brought
 back thy victim. Certainly in thy might thou wilt restore the
 second soon."
 
-The mother — she was a Christian — began to weep and shed
+The mother --- she was a Christian --- began to weep and shed
 tears over her children. The father took a sharp sword and
 went out to meet his son, saying: "Come, my son, let us
 worship the great god in his temple. I must sacrifice to him."
@@ -20521,12 +20535,12 @@ of all the forty and buried them under a stone at the mouth of
 the cave.
 
 He laid down his club and entered the cave. There he saw
-a heap of gold and a heap of silver — indeed, all the treasures
+a heap of gold and a heap of silver --- indeed, all the treasures
 of the world. Since his father's death they had robbed and
 concealed their plunder in this cavern. He opened a door,
 and saw a steed standing fastened to a ring. David was sunk
 in thought, and said to himself: " Uncle dear, this property
-belongs to you, but this beast to me. If you give it to me — •
+belongs to you, but this beast to me. If you give it to me --- •
 good. If not, you travel after those other fellows." Then he
 5
 
@@ -20568,7 +20582,7 @@ are yours. What should I do with it? "
 
 Uncle Toross let David mount the steed. He gave him the
 spurs and he bucked to right and left. This was no ordinary
-steed — the difiliculties of managing him cannot be described.
+steed --- the difiliculties of managing him cannot be described.
 
 They returned to Sassun with the treasure. David procured
 a beautiful falcon and rode ofif to hunt. The calves he had
@@ -20594,7 +20608,7 @@ Mosramelik has taken it from you and draws wealth from it.
 Go and get it back. Why try your strength on me? "
 
 But David answered: " Old man, curse me not. Here is ai
-handful of gold — use it." And as he said it he killed his falcon.
+handful of gold --- use it." And as he said it he killed his falcon.
 
 David returned home and said: " Uncle Toross, go and
 bring me my father's staff and bow. I am going to make war,
@@ -20845,7 +20859,7 @@ must eat bread. How could it be otherwise?"
 And he went his way to the city where Chandud-Chanum
 dwelt.
 
-David came to the gates of the castle where ChandudChanum lived — to the place where all her suitors came to woo.
+David came to the gates of the castle where ChandudChanum lived --- to the place where all her suitors came to woo.
 He saw a youth standing near the door with a club in his hand.
 David said: "Ha, my lad, what do they call you?"
 
@@ -20855,7 +20869,7 @@ David said: "Ha, my lad, what do they call you?"
 you shall be godfather! Now, Godfather Gorgis, who is in
 the house? "
 
-" Matchmakers from the giants — Schibikan of Chorassan
+" Matchmakers from the giants --- Schibikan of Chorassan
 and Hamsa of Lori."
 
 David said, " Take my horse and fasten him." And he took
@@ -20937,7 +20951,7 @@ David's heart softened and he said: " If that is so I will
 go out at daybreak and bring you their heads." Then he
 added: " Very well, I go; if they are stronger than I they
 will kill me. For God's sake come and seek my body. On
-the right hand I have a birth-mark — a cross — by that you shall
+the right hand I have a birth-mark --- a cross --- by that you shall
 know me. Bring my body back and bury it."
 
 So David set out. The giants perceived a rider coming,
@@ -21006,7 +21020,7 @@ The time passed by unheeded, and when nine months, nine
 days and nine hours had passed, God sent them a son.
 
 And David said to Chandud-Chanum: " If this child is
-mine, he must have a mark — he will show great strength."
+mine, he must have a mark --- he will show great strength."
 They put the child in swaddling-clothes, but instead of bands
 they bound him with plough-chains. He began to cry and
 stir in his cradle and the chain snapped into pieces.
@@ -21119,7 +21133,7 @@ milk."
 Then the governor said: " She had a daughter, but it is
 dead."
 
-" We have a test for that also — for our dead. The grave of
+" We have a test for that also --- for our dead. The grave of
 one dead one year is one step long, of one dead two years,
 two steps long, and so on."
 
@@ -21151,7 +21165,7 @@ as they would they could not move him.
 
 The tears of Mcher furrowed the earth and flowed like a
 river. After three days he arose, mounted his father's horse,
-and rode to Chlat. He circled the town and destroyed it — as
+and rode to Chlat. He circled the town and destroyed it --- as
 it is even to this day. Then he ascended the mountain
 Memrut ■* and saw the smoke of the ruins grow ever denser.
 Only one old woman remained alive. He seized her, and,
@@ -21191,7 +21205,7 @@ place?"
 
 Mcher answered: " When plum-trees bear wheat and wildrose bushes barley, it is appointed I shall leave this place."
 
-And three apples fell down from heaven — one for the storyteller, one for the hearer, and the other for the whole world.
+And three apples fell down from heaven --- one for the storyteller, one for the hearer, and the other for the whole world.
 
 r
 
@@ -21306,7 +21320,7 @@ business man worthy to untie his shoe-strings? His
 politeness alone is worth more than ten business men.
 Lately he honored us with a visit, and I was so fascinated
 with his manners! and beside he is still young; is handsome; is educated; has a good position and a good salary
-and will advance every day — everybody says so. Perhaps
+and will advance every day --- everybody says so. Perhaps
 some day he will be governor.
 
 Chacho. That is all very well, dear Salome; but if the thing
@@ -21347,7 +21361,7 @@ know that he lied? God save us from such lies! But
 what could he do? One would die of hunger, to be sure,
 if one always told the truth.
 
-Salome. Yes, yes, dear aunt, it is the same Barssegh — whom
+Salome. Yes, yes, dear aunt, it is the same Barssegh --- whom
 they all call " Wassil Matwejitsch " now.
 
 Chacho. What! have they turned Mathus, his father, into
@@ -21387,7 +21401,7 @@ hand. I feel exhausted.
 Salome [offering her hand]. Let me help you, too.
 
 Chacho. May God give you health and a life as long as
-mine! [To Nato:] O my heart's angel — if only I
+mine! [To Nato:] O my heart's angel --- if only I
 have my wish and see you wear the bridal wreath!
 
 Salome. God grant it, dear aunt!
@@ -21418,7 +21432,7 @@ your father will scold about it.
 
 Nato. But what can I do, when I need it so badly?
 
-Salome. Need it — nonsense! There is no end of your
+Salome. Need it --- nonsense! There is no end of your
 needs. [Pulling at Nato's hat.] How have you put
 your hat on again?.Vntl the llowers are all pulled apart.
 
@@ -21822,7 +21836,7 @@ can do nothing, however.
 OssEP. The devil take yovir manners and customs! If you
 hold so fast to old ways, then stick to all of them. Is it
 an old custom to wear, instead of Georgian shoes, little
-boots — and with men's heels, too? And that a girl
+boots --- and with men's heels, too? And that a girl
 should be ashamed to go with her own people and should
 walk around on the arm of a strange young man: is that
 also one of the good old customs? Where can we find
@@ -21841,7 +21855,7 @@ dervishes? And what is that yonder [points to the furniture]? That one is old-fa
 other? [Silent awhile.
 
 Salome. Well, well! don't be angry! So you will give
-6,000 rubles — you have promised it. What is lacking
+6,000 rubles --- you have promised it. What is lacking
 I will procure.
 
 OssEP. You will procure it? Where, then, will you get it?
@@ -21870,7 +21884,7 @@ Chacho. My son, who takes a thing like that to heart?
 
 Ossep. She is obstinate as a mule. Say, does she not deserve to be soundly beaten, now?
 
-Chacho. It only needed this — that you should say such a
+Chacho. It only needed this --- that you should say such a
 thing! As many years as you have lived together you
 have never harmed a hair of her head; then all of a sudden you begin to talk like this. Is that generous?
 
@@ -21886,7 +21900,7 @@ Chacho. The women are all so, my son. Why do you fret
 yourself so much on that account?
 
 Ossep. Yes, yes; you have the habit of making out that all
-women are alike — all! all! If other people break their
+women are alike --- all! all! If other people break their
 heads against a stone, shall I do the same? No; I do
 what pleases myself, and not what pleases others.
 
@@ -22002,7 +22016,7 @@ Yes, reduce your expenses!
 [Goes toward the ante-room to the right and meets
 Nato with four sheets of music in her hand.
 
-2 Abace — 20 kopecks.
+2 Abace --- 20 kopecks.
 
 Scene VII
 
@@ -22042,7 +22056,7 @@ not one or two enough?
 
 'Nato [frightened]. I need them.
 
-OssEp [still more angrily]. Tell me one thing — is this to be
+OssEp [still more angrily]. Tell me one thing --- is this to be
 endured? If she could play properly at least, but she only
 drums two or three pieces and says she can play. I cannot play myself, but I have heard persons who played
 well. They could use these things, but not we. I wish
@@ -22053,7 +22067,7 @@ properly.
 Chacho. There, there, stop, now!
 
 OssEP. Whatever she tries to do is only half done: music,
-languages — she has only half learned. Tell me, what can
+languages --- she has only half learned. Tell me, what can
 she do? Is she able to sew anything? or to cut out a dress
 for herself? Yes, that one seems like a European girl!
 Ha! ha! Five times I have been in Leipsic, and the
@@ -22127,7 +22141,7 @@ make her happy again. Nato, dear, I have betrothed
 
 you. [Nato looks at her in zvondermcnt.] Yes, my love,
 
-be happy — what have you to say about it? Mr. Alexander
+be happy --- what have you to say about it? Mr. Alexander
 
 Marmarow is now your betrothed.
 Nato. Is it really true, mamma dear?
@@ -22193,9 +22207,9 @@ aivhile in deep thought while he wrings his hands several
 times]. Give me money! Give me money! I would like
 to know where I am to get it. It is hard for me to give
 what I have promised. And what if it cannot be arranged
-for that sum? Am I, then, to make a mess of this! — I
+for that sum? Am I, then, to make a mess of this! --- I
 who have always been willing to make any sacrifice for
-my children? It must, indeed, lie in this — that the suitor
+my children? It must, indeed, lie in this --- that the suitor
 does not please; for I could not find 2,000 to add
 to the 6,000 that I have promised. Yes, that's it!
 The man is not the one I want for her. If he were an
@@ -22332,7 +22346,7 @@ hateful to me. Fi mauvais genre! But let us say no more
 about it. If only God will help us to a good ending!
 
 Salome. God grant that neither of you may have anything to
-regret! — [rising] I will come back immediately, dear sonin-law; I am only going to see what is keeping Nato.
+regret! --- [rising] I will come back immediately, dear sonin-law; I am only going to see what is keeping Nato.
 [Alexander also rises.] Keep your seat, I beg of you.
 How ceremonious you are! I will come right back.
 
@@ -22444,7 +22458,7 @@ Chacho. What has happened to you, Ossep?
 Alexander [to Salome]. I understand nothing of this. [To
 
 Ossep:] My father, you seem dissatisfied.
-Ossep [recovering himself]. I dissatisfied! No — yes — I am
+Ossep [recovering himself]. I dissatisfied! No --- yes --- I am
 
 dizzy.
 Alexander [offering him a chair]. Sit down, I pray, my
@@ -22610,12 +22624,12 @@ MiCHO. Five.
 Barssegh. If you keep on being so stupid my business will be
 
 ruined.
-Micho. Five — five.
+Micho. Five --- five.
 
 Barssegh. I give you my word that I will give you the sack.
-Micho. Five — five.
+Micho. Five --- five.
 Barssegh. Measure further.
-Micho. Five — [aside:]; Holy George, help me! [Aloud:]
+Micho. Five --- [aside:]; Holy George, help me! [Aloud:]
 
 Six. I cannot stretch it any more or I shall tear it.
 Barssegh. Measure, now.
@@ -22797,7 +22811,7 @@ villanies? You are wise, you say? Perhaps you are as
 wise as Solomon!
 Barssegh. I am wealthy.
 
-MosL Take your money and — [Whispers something in his
+MosL Take your money and --- [Whispers something in his
 ear.] You have stolen it here and there. You have
 swindled me out of something, too. Me and this one and
 that one, and so you became rich! You have provided
@@ -23168,7 +23182,7 @@ daughter is not a bit prettier than mine!
 Salome. What! you say she is forward? Everyone knows
 her as a modest and well-behaved girl, while everybody
 calls yours stupid. Yes, that is true; and if you want to
-know the -truth, I can tell it to you — it is just on that account that he would not have her.
+know the -truth, I can tell it to you --- it is just on that account that he would not have her.
 
 Khali. Oh, you witch, you! You have caught the poor
 young man in your nets and deceived him. I would like
@@ -23200,7 +23214,7 @@ Khali. And what better are you? You are a gardener's
 daughter, you insolent thing!
 Salome. You are insolent, yourself! Do not think so much
 
-of yourself — everyone knows that you have robbed the
+of yourself --- everyone knows that you have robbed the
 
 whole world, and only in that way have gotten up in the
 
@@ -23452,8 +23466,8 @@ have acquired your wealth. Yes, it is true that you have
 ruined twenty-five families; that you have put out their
 candle and lighted yours by it. Now I see, for the first
 time, that everything that people say about you is true.
-Now I believe, indeed, that these chairs, this sofa, this mirror, your coat, your cane — in a word, every article that you
-call yours — represents some person you have robbed. Take
+Now I believe, indeed, that these chairs, this sofa, this mirror, your coat, your cane --- in a word, every article that you
+call yours --- represents some person you have robbed. Take
 
 my bones and add to them. Make the measure full. You
 have made your conscience a stone and will hear nothinj:^;
@@ -23468,7 +23482,7 @@ Curtain.
 
 ACT THIRD
 
-Scene I — Ossep's House
+Scene I --- Ossep's House
 
 Nato [stands before the mirror elegantly dressed, and, while
 she pri)iks, Jiiiiiis a European melody. Then she draws
@@ -23591,7 +23605,7 @@ Alexander. Very, very much, Nato dear. You can put me
 
 to the test if you will.
 Nato. Do you know, my piano is not fit to use!
-Alexander [smoothing his hair — aside]. Something new
+Alexander [smoothing his hair --- aside]. Something new
 
 again.
 Nato. Buy me a new piano. To-day I saw one at a store;
@@ -23840,7 +23854,7 @@ tins and everything falls in pieces. Who is in a position
 to fight against such conditions? One must pay the store
 rent and the clerk's salary, and beside that the interest on
 the working capital. Then there are the goods that are
-spoiled or stolen — and here at home! [Striking the cards.]
+spoiled or stolen --- and here at home! [Striking the cards.]
 All this rubbish and more beside! [Striking the table
 again.] And the women are to blame for all this; if my
 wife had not promised 7,000 rubles, without my knowledge,
@@ -23887,7 +23901,7 @@ OssEP. O dear! O dear!
 [Stands near fireplace; rests head on hand and remains motionless.
 Alexander [enter right]. You have come, father? [Silence
 
-— comes near Ossep.] Father.
+--- comes near Ossep.] Father.
 OssEP. Ah! Alexander [o^mw^ Aw Aawrf]. Please sit down.
 
 Have you just come?
@@ -23907,7 +23921,7 @@ Ossep. And can't we wait till he comes back?
 Alexander. That would be too long.
 Ossep. Very well. As you wish.
 
-Alexander [stammering]. But — my dear father
+Alexander [stammering]. But --- my dear father
 
 Ossep. I understand; I understand. You want me to pay over
 
@@ -23967,8 +23981,8 @@ ruined also. [Exit.
 Ossep [alone]. What do I not suffer! If they really come
 here I shall perish through shame. Where can I find so
 much money in such a hurry? One must have time for
-it, and that fellow may come to-day even — perhaps this
-minute. Then I am lost — who will trust me then? My
+it, and that fellow may come to-day even --- perhaps this
+minute. Then I am lost --- who will trust me then? My
 creditors will tie a rope around my neck and prevent me
 from saying a word in my own behalf. " Pay us," they
 will cry; " pay us! " O Salome, Salome!
@@ -23982,11 +23996,11 @@ Gewo. Good-evening, Ossep.
 Ossep. You have come, too. You want your money, too?
 Yes, choke me; double my debt; say that I owe you, not
 2,000 rubles, but 4,000. Speak! You are my creditor;
-speak! Have no pity on me. You want your money —
+speak! Have no pity on me. You want your money ---
 why do you wait, then? Slay me; tear my heart out of
 my body; hack me in pieces and sell it piece by piece, so
 that your money shall not be lost. [Geivo wipes his
-eyes.] Weep, weep, for your money is lost. I am bankrupt— bankrupt!
+eyes.] Weep, weep, for your money is lost. I am bankrupt--- bankrupt!
 
 Gewo [embracing Osscp]. Dear Ossep, dear Ossep!
 
@@ -24002,7 +24016,7 @@ Gewo. God is merciful, dear Ossep.
 
 Ossep. God and heaven have taken their mercy from me.
 You see now where the marriage of my daughter has led
-me? If I could at least pay you everything I owe you —
+me? If I could at least pay you everything I owe you ---
 that I must do at any price.
 
 Gewo. What are you saying, Ossep? If I had the means I
@@ -24015,7 +24029,7 @@ so that I shall not lose your friendship. Only your
 sympathy is left me in this world. I would not like to
 lose your friendship. In this one day I have suffered
 everything. No one has shown interest in me; no one has
-given proof of his sympathy — neither my uncle, nor my
+given proof of his sympathy --- neither my uncle, nor my
 brother, nor my nephew. When they saw I was near my
 last breath, they all forsook me and shut the door in my
 face.
@@ -24169,7 +24183,7 @@ Ossep. God will judge you and me also. [To sheriff and
 
 others:] Come, make your inventory, put your seals on
 
-everything — the house, the furniture, and on the cards,
+everything --- the house, the furniture, and on the cards,
 
 too.
 Barssegh. Make an inventory of everything.
