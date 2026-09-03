@@ -192,7 +192,7 @@ The great poem of Izdubar has but recently been known to European scholars, havi
 
 ## Alcove 1.
 
-## Table 1: Column 1. --- Invocation.
+## Tablet 1: Column 1. --- Invocation.
 
 O Love, my queen and goddess, come to me;  
 My soul shall never cease to worship thee;  
@@ -285,561 +285,399 @@ And erstwhile travelled on the foreign leas;
 His mother Ellat-gula* on the throne  
 From Erech all Kardunia* ruled alone.
 
-## Table 1: Column 2. --- The Fall of Erech.
+## Tablet 1: Column 2. --- The Fall of Erech.
 
-O Moon-god,* hear my cry! With thy pure light
-Oh, take my spirit through that awful night
-That hovers o'er the long-forgotten years,
+O Moon-god,* hear my cry! With thy pure light  
+Oh, take my spirit through that awful night  
+That hovers o'er the long-forgotten years,  
 To sing Accadia's songs and weep her tears!
-'Twas thus I prayed, when lo! my spirit rose
-On fleecy clouds, enwrapt in soft repose;
-And I beheld beneath me nations glide
-In swift succession by, in all their pride:
-The earth was filled with cities of mankind,
-And empires fell beneath a summer wind.
-The soil and clay walked forth upon the plains
-In forms of life, and every atom gains
-A place in man or breathes in animals;
-And flesh and blood and bones become the walls
-
-7 "Zir-ri" (pronounced "zeer-ree"), short form of "Zi-aria," spirits of the running rivers --- naiads or water-nymphs.
-8 "Samas," the sun-god.
-9 Babil, Babylon; the Accadian name was "Din-tir," or "Duran."
-10 "Pa-te-si," prince.
-11 "Ellat-gula," one of the queens or sovereigns of Erech, supposed to have preceded Nammurabi or Nimrod on the throne. We have identified Izdubar herein with Nimrod.
-12 "Kardunia," the ancient name of Babylonia.
-13 "O Moon-god, hear my cry!" ("Sin-lici-unnini!") the name of the author of the Izdubar epic upon which our poem is based.
-
-Of palaces and cities, which soon fall
-
+'Twas thus I prayed, when lo! my spirit rose  
+On fleecy clouds, enwrapt in soft repose;  
+And I beheld beneath me nations glide  
+In swift succession by, in all their pride:  
+The earth was filled with cities of mankind,  
+And empires fell beneath a summer wind.  
+The soil and clay walked forth upon the plains  
+In forms of life, and every atom gains  
+A place in man or breathes in animals;  
+And flesh and blood and bones become the walls  
+Of palaces and cities, which soon fall  
 To unknown dust beneath some ancient wall.
 
-All this I saw while guided by the stroke
+*) "Zir-ri" (pronounced "zeer-ree"), short form of "Zi-aria," spirits of the running rivers --- naiads or water-nymphs.
+
+*) "Samas," the sun-god.
+
+*) Babil, Babylon; the Accadian name was "Diu-tir," or "Duran."
+
+*) "Pa-te-si," prince.
+
+*) "Ellat-gula," one of the queens or sovereigns of Erech, supposed to have preceded Nammurabi or Nimrod on the throne. We have identified Izdubar herein with Nimrod.
+
+*) "Kardunia," the ancient name of Babylonia.
+
+*) "O Moon-god, hear my cry!" ("Siu lici unnini!") the name of the author of the Izdubar epic upon which our poem is based.
+
+All this I saw while guided by the stroke  
 Of unseen pinions:
 
-Then amid the smoke
-That rose o'er burning cities, I beheld
-White Khar-sak-kur-ra's - brow arise that held
-The secrets of the gods --- that felt the prore
-Of Khasisadra's ark; I heard the roar
-Of battling elements, and saw the waves
-That tossed above mankind's commingled graves.
-The mighty mountain as some sentinel
-Stood on the plains alone; and o'er it fell
-A halo, bright, divine; its summit crowned
-With sunbeams, shining on the earth around
-And o'er the wide expanse of plains; --- below
-Lay Khar-sak-kal-ama ^ with light aglow.
-And nestling far away within my view
-Stood Erech, Nipur, Marad, Eridu,
-And Babylon, the tower-city old,
-In her own splendor shone like burnished gold.
-And lo! grand Erech in her glorious days
-Lies at my feet. I see a wondrous maze
-Of vistas, groups, and clustering columns round,
-Within, without the palace; --- from the ground
-Of outer staircases, massive, grand,
-Stretch to the portals where the pillars stand.
-A thousand carved columns reaching high
-To silver rafters in an azure sky.
-And palaces and temples round it rise
-With lofty turrets glowing to the skies,
-And massive walls far spreading o'er the plains,
-Here live and move Accadia's courtly trains,
-And sec! the pii-n-dal-ti * at the gates,
-And masari ° patrol and guard the streets!
-
-2 "Khar-sak-kur-ra," the Deluge mountain on which the ark of Khasisadra (the Accadian Noah) rested. The same mountain is sometimes called the "Mountain of the World" in the inscriptions, where the gods were supposed to sometimes reside.
-3 "Khar-sak-kal-ama" is a city mentioned in the Izdubar epic, and was probably situated at the base of Khar-sak-kur-ra, now called Mount Elwend.
-4 "Pit-u-dal-ti," openers of the gates.
-5 "Masari," guards of the great gates of the city, etc.
-
-And yonder comes a kis-ib, nobleman,
-
-With a young prince; and see! a caravan
-
-Winds tiirough the gates! With men the streets are filled!
-
-And chariots, a people wise and skilled
-
-In things terrestrial, what science, art,
-
-Here reign! With laden ships from every mart
-
-The docks are filled, and foreign fabrics bring
-
-From peoples, lands, where many an empire, king.
-
-Have lived and passed away, and naught have left
-
-In history or song. Dread Time hath cleft
-
-Us far apart; their kings and kingdoms, priests
-
-And bards are gone, and o'er them sweep the mists
-
-Of darkness backward spreading through all time.
-
-Their records swept away in every clime.
-
-Those alabaster stairs let us ascend,
-
-And through this lofty portal we will wend.
-
-Sec! richest Sumir rugs amassed, subdue
-
-The tiled pavement with its varied hue,
-
-Upon the turquoise ceiling sprinkled stars
-
-Of gold and silver crescents in bright pairs!
-
-And gold-fringed scarlet curtains grace each door,
-
-And from the inlaid columns reach the floor:
-
-From golden rods extending round the halls,
-
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Then amid the smoke  
+That rose o'er burning cities, I beheld  
+White Khar-sak-kur-ra's* brow arise that held  
+The secrets of the gods --- that felt the prore  
+Of Khasisadra's ark; I heard the roar  
+Of battling elements, and saw the waves  
+That tossed above mankind's commingled graves.  
+The mighty mountain as some sentinel  
+Stood on the plains alone; and o'er it fell  
+A halo, bright, divine; its summit crowned  
+With sunbeams, shining on the earth around  
+And o'er the wide expanse of plains;--- below  
+Lay Khar-sak-kal-ama* with light aglow,  
+And nestling far away within my view  
+Stood Erech, Nipur, Marad, Eridu,  
+And Babylon, the tower-city old,  
+In her own splendor shone like burnished gold.  
+And lo! grand Erech in her glorious days  
+Lies at my feet. I see a wondrous maze  
+Of vistas, groups, and clustering columns round,  
+Within, without the palace;--- from the ground  
+Of outer staircases, massive, grand,  
+Stretch to the portals where the pillars stand.  
+A thousand carved columns reaching high  
+To silver rafters in an azure sky,  
+And palaces and temples round it rise  
+With lofty turrets glowing to the skies,  
+And massive walls far spreading o'er the plains,  
+Here live and move Accadia's courtly trains,  
+And see! the _pit-u-dal-ti_* at the gates,  
+And _masari_* patrol and guard the streets!  
+And yonder comes a _kis-ib_, nobleman,  
+With a young prince; and see! a caravan  
+Winds through the gates! With men the streets are filled!  
+And chariots, a people wise and skilled  
+In things terrestrial, what science, art,  
+Here reign! With laden ships from every mart  
+The docks are filled, and foreign fabrics bring  
+From peoples, lands, where many an empire, king,  
+Have lived and passed away, and naught have left  
+In history or song. Dread Time hath cleft  
+Us far apart; their kings and kingdoms, priests  
+And bards are gone, and o'er them sweep the mists  
+Of darkness backward spreading through all time,  
+Their records swept away in every clime.  
+Those alabaster stairs let us ascend,  
+And through this lofty portal we will wend.  
+See! richest Sumir rugs amassed, subdue  
+The tilèd pavement with its varied hue,  
+Upon the turquoise ceiling sprinkled stars  
+Of gold and silver crescents in bright pairs!  
+And gold-fringed scarlet curtains grace each door,  
+And from the inlaid columns reach the floor:  
+From golden rods extending round the halls,  
 Bright silken hangings drape the sculptured walls.
 
-But part those scarlet hangings at the door
+*) "Khar-sak-kur-ra," the Deluge mountain on which the ark of Khasisadra (the Accadian Noah) rested.
 
-Of yon grand chamber! tread the antique floor!
+*) "Khar-sak-kal-ama" is a city mentioned in the Izdubar epic, and was probably situated at the base of Khar-sak-kur-ra, now called Mount Elwend. The same mountain is sometimes called the "Mountain of the World" in the inscriptions, where the gods were supposed to sometimes reside.
 
-Behold the sovereign on her throne of bronze,
+*) "Pit-u-dal-ti," openers of the gates.
 
-While crouching at her feet a lion fawns;
+*) "Masari," guards of the great gates of the city, etc.
 
-The glittering court with gold and gems ablaze
-
-With ancient splendor of the glorious days
-
-Of Accad's sovereignty. Behold the ring
-
-Of dancing beauties circling while they sing
-
-With amorous forms in moving melody.
-
-The measure keep to music's harmony.
-
-Hear! how the music swells from silver lute
-
-And golden-stringed lyres and softest flute
-
-And harps and tinkling cymbals, measured drums,
-
-While a soft echo from the chamber comes.
-
-But see! the sovereign lifts her jewelled hand,
-
-The music ceases at the Queen's command;
-
-And lo! two chiefs in warrior's array,
-
-With golden helmets plumed with colors gay,
-
-And golden shields, and silver coats of mail,
-
-Obeisance make to her with faces pale.
-
-Prostrate themselves before their sovereign's throne;
-
-In silence brief remain with faces prone,
-
-Till Ellat-gula " speaks: " My chiefs, arise!
-
-What word have ye for me? what new surprise? "
-
-Tur-tan-u,'' rising, says, " O Dannat ^ Queen!
-
-Thine enemy, Khum-baba^ with Rim-siu ^°
-
-With clanging shields, appears upon the hills,
-
-And Elam's host the land of Sumir fills."
-
-"Away, ye chiefs! sound loud the nalypa-kliit! ^
-
-Send to their post each warrior bar-ru! " -
-
-The gray embattlements rose in the light
-
-That Hngered yet from Samas' ^ rays, ere Night
-
-Her sable folds had spread across the sky.
-
-Thus Erech stood, where in her infancy
-
-The huts of wandering Accads had been built
-
-Of soil, and rudely roofed by woolly pelt
-
-O'erlaid upon the shepherd's worn-out staves,
-
-And yonder lay their fathers' unmarked graves.
-
-Their chieftains in those early days oft meet
-
-Upon the mountains where they Samas greet,
-
-With their rude sacrifice upon a tree
-
-High-raised that their sun-god may shining see
-
-Their offering divine; invoking pray
-
-For aid, protection, blessing through the day.
-
-8 "Ellat-gula," the queen of Erech, the capital of Babylonia.
-1 "Tur-tan-u" was the army officer or general who in the absence of the sovereign took the supreme command of the army, and held the highest rank next to the queen or king.
-2 "Dannat" (the "Powerful Lady") was a title applied to the Queen, the mother of Izdubar (Sayce's ed. Smith's "Chal. Acc. of Gen.," p. 184). We have here identified her with Ellat-gula, the Queen of Babylon, who preceded Ham-murabi or Nammurabi, whom the inscriptions indicate was an Accadian. The latter we have identified with Nimrod, following the suggestion of Mr. George Smith.
-3 "Khumbaba" was the giant Elamitic king, whom Izdubar overthrew. We identify him with the King of the Elamites who, allied with Rim-sin or Rimagu, was overthrown by Nammurabi or Izdubar.
-4 "Rim-sin," above referred to, who overthrew Uruk, or Karrak, or Erech. He was King of Larsa, immediately south of Erech.
-5 "Nap-pa-khu," war-trumpet.
-6 "Bar-ru," army officer.
-7 "Samas," the sun-god.
-
-Beneath these walls and palaces abode
-The spirit of their country --- each man trod
-As if his soul to Erech's weal belonged,
-And heeded not the enemy which thronged
-Before the gates, that now were closed with bars
-Of bronze thrice fastened.
-
-See the thousand cars
-And chariots arrayed across the plains!
-The marching hosts of Elam's armed trains.
-The archers, slingers in advance amassed,
-With black battalions in the centre placed,
-With chariots before them drawn in line,
-Bedecked with brightest trappings iridine,
-While gorgeous plumes of Elam's horses nod
-Beneath the awful sign of Elam's god.
-On either side the mounted spearsmen far
-Extend; and all the enginery of war
-Are brought around the walls with fiercest shouts.
+But part those scarlet hangings at the door  
+Of yon grand chamber! tread the antique floor!  
+Behold the sovereign on her throne of bronze,  
+While crouching at her feet a lion fawns;  
+The glittering court with gold and gems ablaze  
+With ancient splendor of the glorious days  
+Of Accad's sovereignty. Behold the ring  
+Of dancing beauties circling while they sing  
+With amorous forms in moving melody,  
+The measure keep to music's harmony.  
+Hear! how the music swells from silver lute  
+And golden-stringèd lyres and softest flute  
+And harps and tinkling cymbals, measured drums,  
+While a soft echo from the chamber comes.  
+But see! the sovereign lifts her jewelled hand,  
+The music ceases at the Queen's command;  
+And lo! two chiefs in warrior's array,  
+With golden helmets plumed with colors gay,  
+And golden shields, and silver coats of mail,  
+Obeisance make to her with faces pale,  
+Prostrate themselves before their sovereign's throne;  
+In silence brief remain with faces prone,  
+Till Ellat-gula* speaks: "My chiefs, arise!  
+What word have ye for me? what new surprise?"  
+Tur-tau-u,* rising, says, "O Dannat* Queen!  
+Thine enemy, Khum-baba* with Rim-siu*  
+With clanging shields, appears upon the hills,  
+And Elam's host the land of Sumir fills."  
+"Away, ye chiefs! sound loud the _nappa-khu_!*  
+Send to their post each warrior _bar-ru_!*  
+The gray embattlements rose in the light  
+That lingered yet from Samas'* rays, ere Night  
+Her sable folds had spread across the sky.  
+Thus Erech stood, where in her infancy  
+The huts of wandering Accads had been built  
+Of soil, and rudely roofed by woolly pelt  
+O'erlaid upon the shepherd's worn-out staves,  
+And yonder lay their fathers' unmarked graves.  
+Their chieftains in those early days oft meet  
+Upon the mountains where they Samas greet,  
+With their rude sacrifice upon a tree  
+High-raised that their sun-god may shining see  
+Their offering divine; invoking pray  
+For aid, protection, blessing through the day.  
+Beneath these walls and palaces abode  
+The spirit of their country --- each man trod  
+As if his soul to Erech's weal belonged,  
+And heeded not the enemy which thronged  
+Before the gates, that now were closed with bars  
+Of bronze thrice fastened.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;See the thousand cars  
+And chariots arrayed across the plains!  
+The marching hosts of Elam's armèd trains,  
+The archers, slingers in advance amassed,  
+With black battalions in the centre placed,  
+With chariots before them drawn in line,  
+Bedecked with brightest trappings iridine,  
+While gorgeous plumes of Elam's horses nod  
+Beneath the awful sign of Elam's god.  
+On either side the mounted spearsmen far  
+Extend; and all the enginery of war  
+Are brought around the walls with fiercest shouts,  
 And from behind their shields each archer shoots.
 
-Thus Erech is besieged by her dread foes,
+*) "Ellat-gula," the queen of Erech, the capital of Babylonia.
 
-And she at last must feel Accadia's woes.
+*) "Tur-tan-u" was the army officer or general who in the absence of the sovereign took the supreme command of the army, and held the highest rank next to the queen or king.
 
-And feed the vanity of conquerors,
+*) "Dannat" (the "Powerful Lady") was a title applied to the Queen, the mother of Izdubar (Sayce's ed. Smith's "Chal. Acc. of Gen.," p. 184). We have here identified her with Ellat-gula, the Queen of Babylon, who preceded Ham-murabi or Nammurabi, whom the inscriptions indicate was an Accadian. The latter we have identified with Nimrod, following the suggestion of Mr. George Smith.
 
-Who boast o'er victories in all their wars.
+*) "Khumbaba" was the giant Elamitic king, whom Izdubar overthrew. We identify him with the King of the Elamites who, allied with Rim-sin or Rimagu, was overthrown by Nammurabi or Izdubar.
 
-Great Subartu * has fallen by Sutu ^
+*) "Rim-siu," above referred to, who overthrew Uruk, or Karrak, or Erech. He was King of Larsa, immediately south of Erech.
 
-And Kassi,*' Goim '^ fell with Lul-lu-bu,*
+*) "Nap-pa-khu," war-trumpet.
 
-Thus Khar-sak-kal-a-ma ^ all Eridu ^^
+*) "Bar-ru," army officer.
 
-O'erran with Larsa's allies; Subartu
+*) "Samas," the sun-god.
 
-With Duran ^ thus was conquered by these sons
-
-Of mighty Shem and strewn was Accad's bones
-
-Throughout her plains, and mountains, valleys fair,
-
-Unburied lay in many a wolf's lair.
-
-1 "Subartu" is derived from the Accadian "subar" ("high"), applied by the Accadians to the highlands of Aram or Syria. It is probable that all these countries, viz., Subartu, Goim, Lullubu, Kharsak-kalama, Eridu, and Duran, were at one time inhabited by the Accadians, until driven out by the Semites.
-2 "Sutu" is supposed to refer to the Arabians.
-3 "Kassi," the Kassites or Elamites. The Kassi inhabited the northern part of Elam.
-4 "Goim," or "Gutium," supposed by Sir Henry Rawlinson to be the Goyim of Gen. xiv, ruled by Tidal or Turgal ("the Great Son").
-5 "Lul-lu-bu," a country northward of Mesopotamia and Nizir.
-6 "Kharsak-kala-ma," the city supposed to lie at the base of Kharsak-kurra, or Mount Nizir, or Mount Elwend. The same city was afterward called Ecbatana.
-7 "Eridu," the land of Ur, or Erech.
-8 "Duran," Babylonia.
-
-Oh, where is Accad's chieftain Izdubar,
+Thus Erech is besieged by her dread foes,  
+And she at last must feel Accadia's woes,  
+And feed the vanity of conquerors,  
+Who boast o'er victories in all their wars.  
+Great Subartu* has fallen by Sutu*  
+And Kassi,* Goim* fell with Lul-lu-bu,*  
+Thus Khar-sak-kal-a-ma* all Eridu*  
+O'erran with Larsa's allies; Subartu  
+With Duran* thus was conquered by these sons  
+Of mighty Shem and strewn was Accad's bones  
+Throughout her plains, and mountains, valleys fair,  
+Unburied lay in many a wolf's lair.  
+Oh, where is Accad's chieftain Izdubar,  
 Her mightiest unrivalled prince of war?
 
-The turrets on the battlemented walls
+*) "Subartu" is derived from the Accadian "subar" ("high"), applied by the Accadians to the highlands of Aram or Syria. It is probable that all these countries, viz., Subartu, Goim, Lullubu, Kharsak-kalama, Eridu, and Duran, were at one time inhabited by the Accadians, until driven out by the Semites.
 
-Swarm with skilled bowmen, archers --- from them falls
+*) "Sutu" is supposed to refer to the Arabians.
 
-A cloud of winged missiles on their foes,
+*) "Kassi," the Kassites or Elamites. The Kassi inhabited the northern part of Elam.
 
-Who swift reply with shouts and twanging bows;
+*) "Goim," or "Gutium," supposed by Sir Henry Rawlinson to be the Goyim of Gen. 14., ruled by Tidal or Turgal ("the Great Son").
 
-And now amidst the raining death appears
+*) "Lul-lu-bu," a country northward of Mesopotamia and Nizir.
 
-The scaling ladder, lined with glistening spears,
+*) "Kharsak-kala-ma," the city supposed to lie at the base of Kharsak-kurra, or Mount Nizir, or Mount Elwend. The same city was afterward called Ecbatana.
 
-But see! the ponderous catapults now crush
+*) "Eridu," the land of Ur, or Erech.
 
-The ladder, spearsmen, with their mighty rush
+*) "Duran," Babylonia.
 
-Of rocks and beams, nor in their fury slacked
-
-As if a toppling wall came down intact
-
-Upon the maddened mass of men below.
-
-But other ladders rise, and up them flow
-
-The tides of armed spearsmen with their shields;
-
-From others bowmen shoot, and each man wields
-
-A weapon, never yielding to his foe.
-
-For death alone he aims with furious blow.
-
-At last upon the wall two soldiers spring,
-
-A score of spears their corses backward fling.
-
-But others take their place, and man to man.
-
-And spear to spear, and sword to sword, till ran
-
-The walls with slippery gore; but Erech's men
-
-Are brave and hurl them from their walls again.
-
-And now the battering-rams with swinging power
-
-Commence their thunders, shaking every tower;
-
-And miners work beneath the crumbling walls,
-
-Alas! before her foemen Elrech falls.
-
-Vain are suspended chains against the blows
-
-Of dire assaulting engines.
-
-Ho! there goes
-The eastern wall with Erech's strongest tower!
-And through the breach her furious foemen pour:
-A wall of steel withstands the onset fierce.
-But thronging Elam's spears the lines soon pierce,
-A band of chosen men there fight to die.
-Before their enemies disdain to fly;
-The masari ^ within the breach thus died,
-
-^ " Masari," guards of the palace, etc.
-
-And with their dying shout the foe defied.
-
-The foes swarm through the breach and o'er the walls,
-
-And Erech in extremity loud calls
-
-Upon the gods for aid, but prays for naught,
-
-While Elam's soldiers, to a frenzy wrought.
-
-Pursue and slay, and sack the city old
-
-With fiendish shouts for blood and yellow gold.
-
-Each man that falls the foe decapitates.
-
-And bears the reeking death to Erech's gates.
-
-The gates are hidden 'neath the pile of heads
-
-That climbs above the walls, and outward spreads
-
-A heap of ghastly plunder bathed in blood.
-
-Beside them calm scribes of the victors stood.
-
-And careful note the butcher's name, and check
-
-The list; and for each head a price they make.
-
-Thus pitiless the sword of Elam gleams
-
-And the best blood of Erech flows in streams.
-
-From Erech's walls some fugitives escape,
-
-And others in Euphrates wildly leap,
-
-And hide beneath its rushes on the bank
-
+The turrets on the battlemented walls  
+Swarm with skilled bowmen, archers --- from them falls  
+A cloud of wingèd missiles on their foes,  
+Who swift reply with shouts and twanging bows;  
+And now amidst the raining death appears  
+The scaling ladder, lined with glistening spears,  
+But see! the ponderous catapults now crush  
+The ladder, spearsmen, with their mighty rush  
+Of rocks and beams, nor in their fury slacked  
+As if a toppling wall came down intact  
+Upon the maddened mass of men below.  
+But other ladders rise, and up them flow  
+The tides of armèd spearsmen with their shields;  
+From others bowmen shoot, and each man wields  
+A weapon, never yielding to his foe,  
+For death alone he aims with furious blow.  
+At last upon the wall two soldiers spring,  
+A score of spears their corses backward fling.  
+But others take their place, and man to man,  
+And spear to spear, and sword to sword, till ran  
+The walls with slippery gore; but Erech's men  
+Are brave and hurl them from their walls again.  
+And now the battering-rams with swinging power  
+Commence their thunders, shaking every tower;  
+And miners work beneath the crumbling walls,  
+Alas! before her foemen Erech falls.  
+Vain are suspended chains against the blows  
+Of dire assaulting engines.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Ho! there goes  
+The eastern wall with Erech's strongest tower!  
+And through the breach her furious foemen pour:  
+A wall of steel withstands the onset fierce,  
+But thronging Elam's spears the lines soon pierce,  
+A band of chosen men there fight to die,  
+Before their enemies disdain to fly;  
+The _masari_* within the breach thus died,  
+And with their dying shout the foe defied.  
+The foes swarm through the breach and o'er the walls,  
+And Erech in extremity loud calls  
+Upon the gods for aid, but prays for naught,  
+While Elam's soldiers, to a frenzy wrought,  
+Pursue and slay, and sack the city old  
+With fiendish shouts for blood and yellow gold.  
+Each man that falls the foe decapitates,  
+And bears the reeking death to Erech's gates.  
+The gates are hidden 'neath the pile of heads  
+That climbs above the walls, and outward spreads  
+A heap of ghastly plunder bathed in blood.  
+Beside them calm scribes of the victors stood,  
+And careful note the butcher's name, and check  
+The list; and for each head a price they make.  
+Thus pitiless the sword of Elam gleams  
+And the best blood of Erech flows in streams.  
+From Erech's walls some fugitives escape,  
+And others in Euphrates wildly leap,  
+And hide beneath its rushes on the bank  
 And many 'neath the yellow waters sank.
 
-The harper of the Queen, an aged man.
+*) "Masari," guards of the palace, etc.
 
-Stands lone upon the bank, while he doth scan
-
-The horizon with anxious, careworn face,
-
-Lest ears profane of Elam's hated race
-
-Should hear his strains of mournful melody:
-
-Now leaning on his harp in memory
-
-Enwrapt, while fitful breezes lift his locks
-
-Of snow, he sadly kneels upon the rocks
-
-And sighing deeply clasps his hands in woe,
-
-While the dread past before his mind doth flow.
-
-A score and eight of years have slowly passed
-
-Since Rim-a-gu, with Elam's host amassed,
-
-Kardunia's ancient capital had stormed.
-
-The glorious walls and turrets are transformed
-
-To a vast heap of ruins, weird, forlorn.
-
-And Elam's spears gleam through the coming mom.
-
-From the sad sight his eyes he turns away.
-
-His soul breathes through his harp while he doth play
-With bended head his aged hands thus woke
+The harper of the Queen, an agèd man,  
+Stands lone upon the bank, while he doth scan  
+The horizon with anxious, careworn face,  
+Lest ears profane of Elam's hated race  
+Should hear his strains of mournful melody:  
+Now leaning on his harp in memory  
+Enwrapt, while fitful breezes lift his locks  
+Of snow, he sadly kneels upon the rocks  
+And sighing deeply clasps his hands in woe,  
+While the dread past before his mind doth flow.  
+A score and eight of years have slowly passed  
+Since Rim-a-gu, with Elam's host amassed,  
+Kardunia's ancient capital had stormed.  
+The glorious walls and turrets are transformed  
+To a vast heap of ruins, weird, forlorn,  
+And Elam's spears gleam through the coming morn.  
+From the sad sight his eyes he turns away,  
+His soul breathes through his harp while he doth play  
+With bended head his agèd hands thus woke  
 The woes of Erech with a measured stroke:
 
-O Erech! dear Erech, my beautiful home,
+O Erech! dear Erech, my beautiful home,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Accadia's pride, O bright land of the bard,  
+Come back to my vision, dear Erech, oh, come!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Fair land of my birth, how thy beauty is marred!  
+The horsemen of Elam, her spearsmen and bows,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Thy treasures have ravished, thy towers thrown down,  
+And Accad is fallen, trod down by her foes.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Oh, where are thy temples of ancient renown?
 
-Accadia's pride, O bright land of the bard,
-Come back to my vision, dear Erech, oh, come!
+Gone are her brave heroes beneath the red tide,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Gone are her white vessels that rode o'er the main,  
+No more on the river her pennon shall ride,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Gargan-na is fallen, her people are slain.  
+Wild asses* shall gallop across thy grand floors,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And wild bulls shall paw them and hurl the dust high  
+Upon the wild cattle that flee through her doors,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And doves shall continue her mournful slave's cry.
 
-Fair land of my birth, how thy beauty is marred!
-The horsemen of Elam, her spearsmen and bows.
+Oh, where are the gods of our Erech so proud,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;As flies they are swarming away from her halls,  
+The Sedu* of Erech are gone as a cloud,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;As wild fowl are flying away from her walls.  
+Three years did she suffer, besieged by her foes,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Her gates were thrown down and defiled by the feet  
+Who brought to poor Erech her tears and her woes,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;In vain to our Ishtar with prayers we entreat.
 
-Thy treasures have ravished, thy towers thrown
-down,
-And Accad is fallen, trod down by her foes.
+To Ishtar bowed down doth our Bel thus reply,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Come, Ishtar, my queenly one, hide all thy tears,  
+Our hero, Tar-u-man-i izzu Sar-ri,*  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;In Kipur is fortified with his strong spears.  
+The hope of Kardunia,* land of my delight,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Shall come to thy rescue, upheld by my hands,  
+Deliverer of peoples, whose heart is aright,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Protector of temples, shall lead his brave bands.
 
-Oh, where are thy temples of ancient renown?
+*) See Sayce's translation in the "Chal. Acc. of Gen.," by Smith, p. 193.
 
-Gone are her brave heroes beneath the red tide.
+*) "Sedu," spirits of prosperity.
 
-Gone are her white vessels that rode o'er the main.
-No more on the river her pennon shall ride,
+*) "Tar-u-mani izzu Sarri," son of the faith, the fire of kings, or fire-king.
 
-Gargan-na is fallen, her people are slain.
-Wild asses ^ shall gallop across thy grand floors,
+Awake then, brave Accad, to welcome the day!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Behold thy bright banners yet flaming on high,  
+Triumphant are streaming on land and the sea!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Arise, then, O Accad! behold the Sami!*  
+Arranged in their glory the mighty gods come  
+In purple and gold the grand Tam-u* doth shine  
+Over Erech, mine Erech, my beautiful home,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Above thy dear ashes, behold thy god's sign!
 
-And wild bulls shall paw them and hurl the dust
-high
-Upon the wild cattle that flee through her doors,
+## Tablet 1: Column 3. --- The Rescue of Erech by Izdubar.
 
-And doves shall continue her mournful slave's cry.
-
-Oh, where are the gods of our Erech so proud,
-
-As flies they are swarming away from her halls,
-The Sedu * of Erech are gone as a cloud,
-
-As wild fowl are flying away from her walls.
-Three years did she suffer, besieged by her foes.
-
-Her gates were thrown down and defiled by the feet
-Who brought to poor Erech her tears and her woes.
-
-In vain to our Ishtar with prayers we entreat.
-
-To Ishtar bowed down doth our Bel thus reply,
-
-" Come, Ishtar, my queenly one, hide all thy tears,
-Our hero. Tar-u-man-i izzu Sar-ri,"'"'
-
-In Kipur is fortified with his strong spears.
-
-1 See Sayce's translation in the "Chal. Acc. of Gen.," by Smith, p. 193.
-2 "Sedu," spirits of prosperity.
-3 "Tar-u-mani izzu Sarri," son of the faith, the fire of kings, or fire-king.
-
-The hope of Kardunia," land of my delight,
-Shall come to thy rescue, upheld by my hands,
-
-Deliverer of peoples, whose heart is aright.
-
-Protector of temples, shall lead his brave bands.
-
-Awake then, brave Accad, to welcome the day!
-
-Behold thy bright banners yet flaming on high,
-Triumphant are streaming on land and the sea!
-
-Arise, then, O Accad! behold the Sami! '^
-Arranged in their glory the mighty gods come
-In purple and gold the grand Tam-u ** doth shine
-Over Erech, mine Erech, my beautiful home,
-
-Above thy dear ashes, behold thy god's sign!
-
-COLUMN III
-
-The Rescue of Erech by Izdubar
-
-Heabani, weary, eyes his native land.
-And on his harp now lays his trembling hand;
-The song has ended in a joyous lay,
-And yet, alas! his hands but sadly play:
-Unused to hope, the strings refuse their aid
-To tune in sympathy, and heartless played.
-Again the minstrel bows his head in woe,
-And the hot tear-drops from his eyelids flow.
-And chanting now a mournful melody,
+Heabani, weary, eyes his native land,  
+And on his harp now lays his trembling hand;  
+The song has ended in a joyous lay,  
+And yet, alas! his hands but sadly play:  
+Unused to hope, the strings refuse their aid  
+To tune in sympathy, and heartless played.  
+Again the minstrel bows his head in woe,  
+And the hot tear-drops from his eyelids flow,  
+And chanting now a mournful melody,  
 O'er Erech's fall, thus sang an elegy:
 
-^ " How long, O Ishtar, will thy face be turned,
+"How* long, O Ishtar, will thy face be turned,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;While Erech desolate doth cry to thee?  
+Thy towers magnificent, oh, hast thou spurned?  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Her blood like water in Ul-bar,* oh, see!  
+The seat of thine own oracle behold!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The fire hath ravaged all thy cities grand,  
+And like the showers of Heaven them all doth fold.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;O Ishtar! broken-hearted do I stand!  
+Oh, crush our enemies as yonder reed!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;For hopeless, lifeless, kneels thy bard to thee,  
+And, oh! I would exalt thee in my need,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;From thy resentment, anger, oh, us free!
 
-While Erech desolate doth cry to thee?
-Thy towers magnificent, oh, hast thou spurned?
+*) "Kardunia," the ancient name of Babylon.
 
-Her blood like water in Ul-bar,^ oh, see!
-The seat of thine own oracle behold!
+*) "Sami," heavens (plural).
 
-The fire hath ravaged all thy cities grand,
-And like the showers of Heaven them all doth fold.
+*) "Tamu," dawn or sunrise, day.
 
-O Ishtar! broken-hearted do I stand!
+*) The above elegy is an Assyrian fragment remarkably similar to one of the psalms of the Jewish bible, and I believe it belongs to the Izdubar epic (W. A. I. 4. 19, No. 3; also see "Records of the Past," vol. 11. p. 160).
 
-1 "Kardunia," the ancient name of Babylon.
-2 "Sami," heavens (plural).
-3 "Tamu," dawn or sunrise, day.
-4 The above elegy is an Assyrian fragment remarkably similar to one of the psalms of the Jewish bible, and I believe it belongs to the Izdubar epic (W. A. I. IV. 19, No. 3; also see "Records of the Past," vol. xi. p. 160).
-5 "Ul-bar," Bel's temple.
-
-Oh, crush our enemies as yonder reed!
-
-For hopeless_, lifeless, kneels thy bard to thee,
-And, oh! I would exalt thee in my need,
-
-From thy resentment, anger, oh, us free!
+*) "Ul-bar," Bel's temple.
 
 With eyes bedimmed with tears, he careful scans
-
 The plain, '* Perhaps the dust of caravans
-
 It is! But no!! I see long lines of spears!
-
 A warrior from the lifting cloud appears.
-
 And chariots arrayed upon the plain!
-
 And is the glorious omen not in vain?
-
 What! no? " He rubs his eyes in wild surprise.
-
 And drinks the vision while he loudly cries:
-
-" Oh, joy! our standards Hashing from afar!
-
+"Oh, joy! our standards Hashing from afar!
 He comes! he comes! our hero Izdubar! "
-
 He grasps his harp inspired, again to wake
-
 In song --- the cry of battle now doth break.
 
-*' Nin-a-rad,^ servant of our great Nin,*
+"Nin-a-rad,* servant of our great Nin,*
 Shall lead our hosts to victory!
 God of the chase and war, o'er him, oh, shine!
 Tar-u-ma-ni iz-zu sar-ri! ^
