@@ -784,674 +784,532 @@ Then loud the cry of victory they raise.
 
 ## Tablet 1: Column 4. --- Coronation of Izdubar.
 
-A crowd of maidens led a glorious van;
-With roses laden the fair heralds ran,
-With silver-throated music chant the throng,
-And sweetly sang the coronation song:
-And now we see the gorgeous cavalcade,
-Within the walls in Accad's grand parade
-They pass, led by the maidens crowned with flowers,
-Who strew the path with fragrance; --- to the towers
-And walls and pillars of each door bright cling
+A crowd of maidens led a glorious van;  
+With roses laden the fair heralds ran,  
+With silver-throated music chant the throng,  
+And sweetly sang the coronation song:  
+And now we see the gorgeous cavalcade,  
+Within the walls in Accad's grand parade  
+They pass, led by the maidens crowned with flowers,  
+Who strew the path with fragrance;--- to the towers  
+And walls and pillars of each door bright cling  
 The garlands. Hear the maidens joyful sing!
 
-" Oh, shout the cry! Accadians, joyful sing
-For our Deliverer! Oh, crown him King!
-Then strew his path with garlands, tulips, rose,
-And wave his banners as he onward goes;
-Our mighty Nin-rad comes, oh, raise the cry!
+"Oh, shout the cry! Accadians, joyful sing  
+For our Deliverer! Oh, crown him King!  
+Then strew his path with garlands, tulips, rose,  
+And wave his banners as he onward goes;  
+Our mighty Nin-rad comes, oh, raise the cry!  
 We crown Tar-u-ma-ni iz-zu sar-ri!
 
-Away to Samas' temple grand, away!
+Away to Samas' temple grand, away!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;For Accad crowns him, crowns him there!  
+He is our chosen Sar* this glorious day,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Oh, send the Khanga* through the air!
 
-For Accad crowns him, crowns him there!
-He is our chosen Sar ^ this glorious day.
-
-Oh, send the Khanga^ through the air!
-
-Then chant the chorus, all ye hosts above!
-O daughters, mothers, sing for him we love!
-His glory who can sing, who brings us joy?
-For hope and gladness all our hearts employ.
-He comes, our hope and strength in every war:
+Then chant the chorus, all ye hosts above!  
+O daughters, mothers, sing for him we love!  
+His glory who can sing, who brings us joy?  
+For hope and gladness all our hearts employ.  
+He comes, our hope and strength in every war:  
 We crown him as our king, our Izdubar!
 
-Away to Samas' temple grand, away!
+Away to Samas' temple grand, away!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;For Accad crowns him, crowns him there!  
+He is our chosen Sar this glorious day,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Oh, send the Khanga through the air!
 
-For Accad crowns him, crowns him there!
-He is our chosen Sar this glorious day,
+*) "Sar," king.
 
-Oh, send the Khanga through the air!
+*) "Khanga," chorus.
 
-Toward the temple filed the long parade,
-The nobles led while Accad's music played;
-
-* " Sar," king. ^ " Khanga," chorus.
-
-The harps and timbrels, barsoms, drums and flutes
-
-Unite with trumpets and the silver lutes.
-
-Surrounded by his chieftains rides the Sar
-
-In purple robes upon his brazen car.
-
-Bedecked with garlands, steeds of whitest snow
-
-The chariot draw in state with movement slow^
-
-Each steed led by a kisib, nobleman,
-
-A score of beauteous horses linked in span.
-
-The army follows with their nodding plumes,
-
-And burnished armor, trumpets, rolling drums,
-
-And glistening spears enwreathed with fragrant flowers.
-
-While scarfs are waving from the crowded towers.
-
-And shouts of joy their welcome loud proclaim.
-
+Toward the temple filed the long parade,  
+The nobles led while Accad's music played;  
+The harps and timbrels, barsoms, drums and flutes  
+Unite with trumpets and the silver lutes.  
+Surrounded by his chieftains rides the Sar  
+In purple robes upon his brazen car.  
+Bedecked with garlands, steeds of whitest snow  
+The chariot draw in state with movement slow,  
+Each steed led by a _kisib_, nobleman,  
+A score of beauteous horses linked in span.  
+The army follows with their nodding plumes,  
+And burnished armor, trumpets, rolling drums,  
+And glistening spears enwreathed with fragrant flowers,  
+While scarfs are waving from the crowded towers,  
+And shouts of joy their welcome loud proclaim,  
 And from each lip resounds their monarch's name.
 
-And now before the holy temple stands
-The chariot, in silence cease the bands.
-Around an altar stand the waiting priests.
-And held by them, the sacrificial beasts.
-The hero from his chair descends.
-And bowing to the priests, he lowly bends
-Before the sacred altar of the Sun,
+And now before the holy temple stands  
+The chariot, in silence cease the bands.  
+Around an altar stand the waiting priests,  
+And held by them, the sacrificial beasts.  
+The hero from his chair descends,  
+And bowing to the priests, he lowly bends  
+Before the sacred altar of the Sun,  
 And prays to Samas, Accad's Holy One.
 
-^ " O Samas, I invoke thee, throned on high!
+"O Samas,* I invoke thee, throned on high!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Within the cedars' shadow bright thou art,  
+Thy footing rests upon immensity;  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;All nations eagerly would seek thy heart.  
+Their eyes have turned toward thee, O our Friend!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Whose brilliant light illuminates all lands,  
+Before thy coming all the nations bend,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Oh, gather every people with thy hands!  
+For thou, O Samas, knowest boundaries  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Of every kingdom, falsehood dost destroy,  
+And every evil thought from sorceries  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Of wonders, omens, dreams that do annoy,  
+And evil apparitions, thou dost turn  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;To happy issue; malice, dark designs;  
+And men and countries in thy might o'erturn,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And sorcery that every soul maligns.  
+Oh, in thy presence refuge let me find!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;From those who spells invoke against thy King,  
+Protect one! and my heart within thine, oh, bind!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Thy* breath within mine inmost soul, oh, bring!  
+That I with thee, O Samas, may rejoice.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And may the gods who me created, take  
+Thy hands and lead me, make thy will my choice,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Direct* my breath, my hands, and of me make  
+They servant, Lord of light of legions vast,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;O Judge, thy glory hath all things surpassed!"
 
-Within the cedars' shadow bright thou art,
-Thy footing rests upon immensity;
+*) One of the Accadian psalms is here quoted from "Chaldean Magic," by Lenormant, pp. 185, 186. See also "Records of the Past," vol. 11. pl. 17, col. 2.
 
-All nations eagerly would seek thy heart.
-Their eyes have turned toward thee^ O our Friend!
-
-Whose brilliant light illuminates all lands,
-Before thy coming all the nations bend,
-
-Oh, gather every people with thy hands!
-For thou, O Samas, knowest boundaries
-
-Of every kingdom, falsehood dost destroy.
-And every evil thought from sorceries
-
-Of wonders, omens, dreams that do annoy.
-And evil apparitions, thou dost turn
-
-To happy issue; malice, dark designs;
-
-* One of the Accadian psalms is here " Records of the Past," vol. xi. pi. 17,
-
-iuoted from " Chaldean Magic," by col. 2. ■ '
-
-.enormant, pp. 185, 186. See also And men and countries in thy might o'crturn,
-
-And sorcery that every soul mahgns.
-Oh, in thy presence refuge let me find!
-
-From those who spells invoke against thy King,
-Protect one! and my heart within thine, oh, bind!
-
-* Thy breath within mine inmost soul, oh, bring!
-That I with thee, O Samas, may rejoice.
-
-And may the gods who me created, take
-Thy hands and lead me, make thy will my choice,
-
-'^ Direct my breath, my hands, and of me make
-They servant. Lord of light of legions vast,
-
-O Judge, thy glory hath all things surpassed! "
-
-The King then rises, takes the sacred glass,"
-And holds it in the sun before the mass
-Of waiting fuel on the altar piled.
-The centring rays --- the fuel glowing gild
-With a round spot of fire and quickly spring
+The King then rises, takes the sacred glass,*  
+And holds it in the sun before the mass  
+Of waiting fuel on the altar piled.  
+The centring rays --- the fuel glowing gild  
+With a round spot of fire and quickly spring  
 Above the altar curling, while they sing!
 
-"' " Oh, to the desert places may it fly,
+"Oh,* to the desert places may it fly,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;This incantation holy!  
+O spirit of the heavens, us this day  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Remember, oh, remember!  
+O spirit of the earth, to thee we pray,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Remember! Us remember!
 
-This incantation holy!
-O spirit of the heavens, us this day
+"O God of Fire! a lofty prince doth stand,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;A warrior, and son of the blue sea,  
+Before the God of Fire in thine own land,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Before thy holy fires that from us free  
+Dread Darkness, where dark Nuk-khu reigns.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Our prince, as monarch we proclaim,  
+His destiny thy power maintains,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Oh, crown his glory with wide fame!
 
-Remember, oh, remember!
-O spirit of the earth, to thee we pray,
+"With bronze and metal thou dost bless  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;All men, and givest silver, gold.  
+The goddess with the hornèd face  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Did bless us with thee from of old.  
+From dross thy fires change gold to purity;  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Oh, bless our fire-king, round him shine  
+With Heaven's vast sublimity!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And like the earth with rays divine,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;As the bright walls of Heaven's shrine."
 
-Remember! Us remember!
+*) Literally, "Right into my marrow, O Lords of breath."
 
-" O God of Fire! a lofty prince doth stand,
+*) Literally, "Direct the breath of my mouth!"
 
-A warrior, and son of the blue sea.
-Before the God of Fire in thine own land,
+*) Sacred glass, sun-glass used to light the sacred fire.
 
-Before thy holy fires that from us free
-Dread Darkness, where dark Nuk-khu reigns.
+*) Incantation to Fire ("Records of the Past," vol. 11. p. 137). The Accadian and Assyrian text is found in "C. I. W. A.," vol. 4. pl. 14, and on tablet K. 49,002, in the British Museum.
 
-Our prince, as monarch we proclaim,
-His destiny thy power maintains,
+## Tablet 1: Column 5. --- Ishtar and her Maids in the Favorite Haunt of Izdubar.
 
-Oh, crown his glory with wide fame!
+The king while hunting where a forest grows,  
+Around sweet hyacinths and budding rose,  
+Where a soft zephyr o'er them gently flows  
+From the dark _sik-ka-ti_* where Kharsak* glows;  
+And Sedu* softly dances on the leaves,  
+And a rich odorous breath from them receives;  
+Where tulips peep with heliotrope and pink,  
+With violets upon a gleaming brink  
+Of silver gliding o'er a water-fall  
+That sings its purling treasures o'er a wall  
+Of rugged onyx sparkling to the sea:  
+A spot where Zir-ri* sport oft merrily,  
+Where Hea's* arm outstretched doth form a bay,  
+Wild, sheltered, where his sea-daughters play;  
+A jasper rock here peeps above the waves  
+Of emerald hue; with them its summit laves.
 
-" With bronze and metal thou dost bless
-All men, and givest silver, gold.
-
-4 Literally, "Right into my marrow, O Lords of breath."
-5 Literally, "Direct the breath of my mouth!"
-6 Sacred glass, sun-glass used to light the sacred fire.
-7 Incantation to Fire ("Records of the Past," vol. xi. p. 137). The Accadian and Assyrian text is found in "C. I. W. A.," vol. iv. pl. 14, and on tablet K. 49,002, in the British Museum.
-
-The goddess with the horned face
-Did bless us with thee from of old.
-
-From dross thy fires change gold to purity;
-Oh, bless our fire-king, round him shine
-
-With Heaven's vast sublimity!
-And like the earth with rays divine,
-As the bright walls of Heaven's shrine."
-
-COLUMN V
-
-ISHTAR AND IIER MaIDS IN THE FaVORITE HaUNT OF
-
-IZDUBAR
-
-The king while hunting where a forest grows,
-Around sweet hyacinths and budding rose,
-Where a soft zephyr o'er them gently flows
-From the dark sik-ka-ti'^ where Kharsak^ glows;
-And Sedu ^ softly dances on the leaves,
-And a rich odorous breath from them receives;
-Where tulips peep with heliotrope and pink.
-With violets upon a gleaming brink
-Of silver gliding o'er a water-fall
-That sings its purling treasures o'er a wall
-Of rugged onyx sparkling to the sea:
-A spot where Zir-ri* sport oft merrily,
-Where Hea's^ arm outstretched doth form a bay.
-Wild, sheltered, where his sea-daughters play;
-A jasper rock here peeps above the weaves
-Of emerald hue; wdth them its summit laves.
-
-Around, above, this cool enchanting cove
-Bend amorous, spicy branches; here the dove
-Oft coos its sweetest notes to its own mate,
-And fragrance pure, divine, the air doth freight,-
-To sport with gods no lovelier place is found,
-With love alone the mystic woods resound.
-
-1 "Sik-ka-ti," narrow mountain gorges.
-2 "Khar-sak," the Deluge mountain, where the ark rested.
-3 "Hea," the god of the ocean.
-4 "Se-du," a spirit of the earth, and rivers.
-5 "Zir-ri," the spirits of the rivers, water-nymphs.
-
-Here witching Zi-na-ki *^ oft drag within
-The waves unwilling Zi-si; ' here the din
-Of roars of sullen storms is never known
-When tempests make the mighty waters groan;
-Nor sound of strife is heard, but rippling rills,
+Around, above, this cool enchanting cove  
+Bend amorous, spicy branches; here the dove  
+Oft coos its sweetest notes to its own mate,  
+And fragrance pure, divine, the air doth freight,  
+To sport with gods no lovelier place is found,  
+With love alone the mystic woods resound.  
+Here witching Zi-na-ki* oft drag within  
+The waves unwilling Zi-si;* here the din  
+Of roars of sullen storms is never known  
+When tempests make the mighty waters groan;  
+Nor sound of strife is heard, but rippling rills,  
 Or softest note of love, the breezes fills.
 
-And here the king in blissful dreams oft lies
-'Mid pure ambrosial odors, and light Hies
-The tune in bliss; away from kingly care.
-And hollow splendor of the courtly glare;
-Away from triumphs, battle-fields afar,
+*) "Sik-ka-ti," narrow mountain gorges.
+
+*) "Khar-sak," the Deluge mountain, where the ark rested.
+
+*) "Se-du," a spirit of the earth, and rivers.
+
+*) "Zir-ri," the spirits of the rivers, water-nymphs.
+
+*) "Hea," the god of the ocean.
+
+And here the king in blissful dreams oft lies  
+'Mid pure ambrosial odors, and light flies  
+The tune in bliss; away from kingly care,  
+And hollow splendor of the courtly glare;  
+Away from triumphs, battle-fields afar,  
 The favorite haunt of huntsman Izdubar.
 
-The Queen of Love the glowing spot surveys.
-
-And sees the monarch where he blissful lays;
-
-And watching till he takes his bow and spear
-
-To chase the wild gazelles now browsing near,
-
-She, ere the king returns, near by arrives
-
-With her two maids; with them for love connives,
-
-Joy and seduction thus voluptuous fly
-
-Her Samkhatu,^ Kharimtu ^ from the sky,
-
-As gently, lightly as a spirit's wing
-
-Oft carries gods to earth while Sedu sing.
-
-Thus, they, with lightest step, expectant stood
-
+The Queen of Love the glowing spot surveys,  
+And sees the monarch where he blissful lays;  
+And watching till he takes his bow and spear  
+To chase the wild gazelles now browsing near,  
+She, ere the king returns, near by arrives  
+With her two maids; with them for love connives,  
+Joy and seduction thus voluptuous fly  
+Her Samkhatu,* Kharimtu* from the sky,  
+As gently, lightly as a spirit's wing  
+Oft carries gods to earth while Sedu sing.  
+Thus, they, with lightest step, expectant stood  
 Within this lovely spot beneath the wood.
 
-Their snowy limbs they bare, undraped now stand
-
-Upon the rock at Ishtar's soft command.
-
-Like marble forms endued with life they move,
-
-And thrill the air with welcome notes of love.
-
-The its-fu-ri Same miit-tab-ri ^° sang
-
-Their sweetest notes, and the Khar-san-u'^ rang
-
-With songs of thrushes, turtle-doves and jays.
-
-And linnets, with the nightingale's sweet lays.
-
-Goldfinches, magpies and the wild hoopoes;
-
-With cries of green-plumed parrots and cuckoos,
-
-6 "Zi-na-ki," pronounced "zee-na-kee," spirits of purity.
-7 "Zi-si," corn-gods, or spirits of the corn.
-8 "Sam-kha-tu," one of the maids of Ishtar, "Joy."
-9 "Kha-rima-tu," one of the maids of Ishtar, "Seduction."
-10 "Its-tu-ri Same mut-tab-ri," "the winged birds of heaven."
-11 "Khar-san-u," forest.
-
-Pee-wits and sparrows join the piercing cries
-
-Of gorgeous herons, while now upward iHes
-
-The eagle screaming, joyful spreads his wings
-
-Above the forest; and the woodchuck rings
-
-A wild tattoo upon the trees around;
-
-And humming-birds whirr o'er the flowering ground
-
-In flocks, and beat the luscious laden air
-
-With emerald and gold^ and scarlet, where
-
-These perfect forms with godly grace divine,
-
-In loveliness upon the rock recline.
-
-Sweet joy is slender formed, with bright black eyes
-
-That sparkle oft and dance with joy's surprise;
-
-Seduction, with her rare voluptuous form,
-
-Enchanteth all till wildest passions warm
-
-The blood and fire the eye beneath her charm;
-
-All hearts in heaven and earth she doth disarm.
-
-The Queen with every perfect charm displayed
-
-Delights the eye, and fills the heart, dismayed
-
-With fear, lest the bright phantom may dissolve
-
-To airy nothingness, till fierce resolve
-
-Fills each who her beholds, while love doth dart
-
-From liquid eyes and captivates the heart.
-
-She is the queen who fills the earth with love
-
+Their snowy limbs they bare, undraped now stand  
+Upon the rock at Ishtar's soft command.  
+Like marble forms endued with life they move,  
+And thrill the air with welcome notes of love.  
+The _its-tu-ri Same mut-tab-ri_* sang  
+Their sweetest notes, and the _Khar-san-u_* rang  
+With songs of thrushes, turtle-doves and jays,  
+And linnets, with the nightingale's sweet lays,  
+Goldfinches, magpies and the wild hoopoes;  
+With cries of green-plumed parrots and cuckoos,  
+Pee-wits and sparrows join the piercing cries  
+Of gorgeous herons, while now upward flies  
+The eagle screaming, joyful spreads his wings  
+Above the forest; and the woodchuck rings  
+A wild tattoo upon the trees around;  
+And humming-birds whirr o'er the flowering ground  
+In flocks, and beat the luscious laden air  
+With emerald and gold, and scarlet, where  
+These perfect forms with godly grace divine,  
+In loveliness upon the rock recline.  
+Sweet joy is slender formed, with bright black eyes  
+That sparkle oft and dance with joy's surprise;  
+Seduction, with her rare voluptuous form,  
+Enchanteth all till wildest passions warm  
+The blood and fire the eye beneath her charm;  
+All hearts in heaven and earth she doth disarm.  
+The Queen with every perfect charm displayed  
+Delights the eye, and fills the heart, dismayed  
+With fear, lest the bright phantom may dissolve  
+To airy nothingness, till fierce resolve  
+Fills each who her beholds, while love doth dart  
+From liquid eyes and captivates the heart.  
+She is the queen who fills the earth with love  
 And reigns unrivalled in her realms above.
 
-Beware, ye hearts! beware! who feel the snare
-Of Ishtar, lest ye tread upon the air;
-When ye her rosy chain of fragrance wear,
-When blindness strikes the eye, and deaf the ear
-Becomes, and heartstrings only lead you then,
-Till ye return to common sense again;
-Enthralled mayhap and captive led in chains.
-Ye then will leisure have to bear your pains;
-Or if perchance a joy hath come to thee,
+*) "Zi-na-ki," pronounced "zee-na-kee," spirits of purity.
+
+*) "Zi-si," corn-gods, or spirits of the corn.
+
+*) "Sam-kha-tu," one of the maids of Ishtar, "Joy."
+
+*) "Kha-rima-tu," one of the maids of Ishtar, "Seduction."
+
+*) "Its-tu-ri Same mut-tab-ri," "the wingèd birds of heaven."
+
+*) "Khar-san-u," forest.
+
+Beware, ye hearts! beware! who feel the snare  
+Of Ishtar, lest ye tread upon the air;  
+When ye her rosy chain of fragrance wear,  
+When blindness strikes the eye, and deaf the ear  
+Becomes, and heartstrings only lead you then,  
+Till ye return to common sense again;  
+Enthralled mayhap and captive led in chains,  
+Ye then will leisure have to bear your pains;  
+Or if perchance a joy hath come to thee,  
 Through all thy joyous life, then happy be!
 
-COLUMN VI
+## Tablet 1: Column 6. --- Izdubar falls in Love with Ishtar, the Queen of Love.
 
-IZDUBAR FALLS IN LoVE WITH ISHTAR, THE QuEEN OF LoVE
-
-The hour has come when Izdubar will seek
-The cool enchantment of the cove, and slake
-His thirst with its sweet waters bubbling pure,
-Where Love has spread for him her sweetest lure.
-The maids expectant listening, watch and wait
-His coming; oft in ecstacies they prate
-O'er his surprise, and softly sport and splash
-The limpid waves around, that glowing flash
-Like heaps of snowy pearls flung to the light
-By Hea's ^ hands, his Zir-ri - to delight.
-And now upon the rock each maid reclines,
-While Ishtar's form beneath them brightly shines;
-Beside the fountain stands the lovely god.
+The hour has come when Izdubar will seek  
+The cool enchantment of the cove, and slake  
+His thirst with its sweet waters bubbling pure,  
+Where Love has spread for him her sweetest lure,  
+The maids expectant listening, watch and wait  
+His coming; oft in ecstacies they prate  
+O'er his surprise, and softly sport and splash  
+The limpid waves around, that glowing flash  
+Like heaps of snowy pearls flung to the light  
+By Hea's* hands, his Zir-ri* to delight.  
+And now upon the rock each maid reclines,  
+While Ishtar's form beneath them brightly shines;  
+Beside the fountain stands the lovely god,  
 The graceful sovereign of Love's sweet abode.
 
-" He comes; the shrubs of yonder jasmine near
-
-Are rusthng, oh, he comes! my Izdubar! "
-
-And thus her love she greets: " Why art thou here?
-
-Thou lovely mortal! king art thou, or seer?
-
-We reck not which, and welcome give to thee;
-
-Wouldst thou here sport with us within the sea? "
-
-And then, as if her loveliness forgot,
-
-She quickly grasped her golden locks and wrought
-
-Them round her form of symmetry with grace
-
-That well became a god, while o'er her face
-
-Of sweetest beauty blushes were o'erspread;
-
-" Thou see-est only Nature's robe," she said.
-
-*' 'Tts all I wish while sporting with my maids.
-
-And all alone no care have we for jades;
-
-And if with thee we can in truth confide,
-
-We here from all the world may cosey hide."
-
-She hurls a glance toward him, smiling naive.
-
-Then bounding from the rock, peeps from a wave;
-
-The waters fondling her surround, embrace
-
-Her charms; and now emerging with rare grace,
-
-1 " Hea," god of the ocean.
-
-» " Zir-ri," spirits of the river, the sea-daughters of Hea.
-
-She turning says:
-
-" Make haste, my hearts!
-Come forth! attend your queen! " and then she parts
-The azure waves, to where, in dumb surprise,
-The King enchanted stands, and fondly eyes
-The Queen divine, while fascinating thrills
-Sweep wildly through his breast; as fragrance fills
-The rose-tree groves, or gardens of the gods.
-Or breezes odorous from the Blest Abodes.
-A longing, rising, fills his inmost soul
-For this sweet queen who offers him a goal
-His stormy life has never known, since he.
-His loved one lost beneath the raging sea;
-And all his calm resolves to seek no more
-A joy which pa-ssed and left his heart forlore.
-Are breaking, vanishing beneath her charms,
-Dissolving as the mists, when sunlight warms
-The earth, then scorching drinks the rising dews;
-Till he at last no longer can refuse.
-And love directs while he the goddess greets:
-" Such wondrous beauty here no mortal meets;
-But come, thou Zir-ru,^ with me sweetly rest;
-Primroses, gentians, with their charms invest
-My mossy couch, with odorous citron-trees
-And feathery palms above; and I will please
-Thee with a mortal's love thou hast not known;
-In pure love mingling let our spirits run.
-For earthly joys are sweeter than above,
-That rarest gift, the honeyed kiss of love
-On earth, is sweeter bliss than gods enjoy;
-Their shadowy forms with love cannot employ
-Such pleasure as a mortal's sweet caress.
-Come, Zi-ru, and thy spirit I will bless;
-The Mandrake* ripened golden, glows around;
+"He comes; the shrubs of yonder jasmine near  
+Are rustling, oh, he comes! my Izdubar!"  
+And thus her love she greets: "Why art thou here?  
+Thou lovely mortal! king art thou, or seer?  
+We reck not which, and welcome give to thee;  
+Wouldst thou here sport with us within the sea?"  
+And then, as if her loveliness forgot,  
+She quickly grasped her golden locks and wrought  
+Them round her form of symmetry with grace  
+That well became a god, while o'er her face  
+Of sweetest beauty blushes were o'erspread;  
+"Thou see-est only Nature's robe," she said.  
+"'Tis all I wish while sporting with my maids,  
+And all alone no care have we for jades;  
+And if with thee we can in truth confide,  
+We here from all the world may cosey hide."  
+She hurls a glance toward him, smiling naïve,  
+Then bounding from the rock, peeps from a wave;  
+The waters fondling her surround, embrace  
+Her charms; and now emerging with rare grace,  
+She turning says:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Make haste, my hearts!  
+Come forth! attend your queen!" and then she parts  
+The azure waves, to where, in dumb surprise,  
+The King enchanted stands, and fondly eyes  
+The Queen divine, while fascinating thrills  
+Sweep wildly through his breast; as fragrance fills  
+The rose-tree groves, or gardens of the gods,  
+Or breezes odorous from the Blest Abodes.  
+A longing, rising, fills his inmost soul  
+For this sweet queen who offers him a goal  
+His stormy life has never known, since he,  
+His loved one lost beneath the raging sea;  
+And all his calm resolves to seek no more  
+A joy which passed and left his heart forlore,  
+Are breaking, vanishing beneath her charms,  
+Dissolving as the mists, when sunlight warms  
+The earth, then scorching drinks the rising dews;  
+Till he at last no longer can refuse,  
+And love directs while he the goddess greets:  
+"Such wondrous beauty here no mortal meets;  
+But come, thou Zir-ru,* with me sweetly rest;  
+Primroses, gentians, with their charms invest  
+My mossy couch, with odorous citron-trees  
+And feathery palms above; and I will please  
+Thee with a mortal's love thou hast not known;  
+In pure love mingling let our spirits run,  
+For earthly joys are sweeter than above,  
+That rarest gift, the honeyed kiss of love  
+On earth, is sweeter bliss than gods enjoy;  
+Their shadowy forms with love cannot employ  
+Such pleasure as a mortal's sweet caress.  
+Come, Zi-ru, and thy spirit I will bless;  
+The Mandrake* ripened golden, glows around;  
 The fruit of Love is fragrant on the ground."
 
-Amid the Dud'im''^ plants he now reclines,
-And to his welcome fate himself resigns;
+*) "Hea," god of the ocean.
 
-l"^'r^']''\'"^^^l'u^'^P^-, »" or Chald. I^nnn^ and Svr. NnnnV the
+*) "Zir-ri," spirits of the river, the sea-daughters of Hea.
 
-'"Mandrake, the love-plant. " love-plant " or mandrake; perhaps also
-
-'"Dud'im" or "dudaiin," D^XIIT. originally from "du-du" ("love'") or ex.
-
-The lovely queen beside him now cloth lay,
-And leads his soul along the blissful way
-That comes to every heart that longs for love,
-When purest joy doth bless us from above;
-From her soft liquid eyes the love-light speaks,
-And her warm hands she lays in his, and wakes
-Beneath her touch a thrill of wild desire,
-Until his blood now seems like molten fire.
-Her eyes half closed begat a passion wild.
-With her warm breast, her loves hath beguiled;
-She nearer creeps with hot and balmy breath.
-And trembling form aglow, and to him saith:
-" My lips are burning for a kiss, my love! "
-A prize like this, a heart of stone would move.
-And he his arms around her fondly placed
-Till she reclined upon his breast, embraced.
-Their lips in one long thrilling rapture meet.
-But hark! what are these strains above so sweet
-That float around, above, their love surround?
-An-nu-na-ci" from forests, mounts around,
-And from the streams and lakes, and ocean, trees,
-And all that haunt the godly place, to please
-The lovers, softly chant and dance around
-To cymbals, lyres until the rocks resound,
-Of goddess Ishtar chant, and Izdubar,
-The Queen of Love wed to the King of War.
-And he alarmed starts up and springs away.
+Amid the Dud'im* plants he now reclines,  
+And to his welcome fate himself resigns;  
+The lovely queen beside him now doth lay,  
+And leads his soul along the blissful way  
+That comes to every heart that longs for love,  
+When purest joy doth bless us from above;  
+From her soft liquid eyes the love-light speaks,  
+And her warm hands she lays in his, and wakes  
+Beneath her touch a thrill of wild desire,  
+Until his blood now seems like molten fire.  
+Her eyes half closed begat a passion wild,  
+With her warm breast, her loves hath beguiled;  
+She nearer creeps with hot and balmy breath,  
+And trembling form aglow, and to him saith:  
+"My lips are burning for a kiss, my love!"  
+A prize like this, a heart of stone would move,  
+And he his arms around her fondly placed  
+Till she reclined upon his breast, embraced,  
+Their lips in one long thrilling rapture meet.  
+But hark! what are these strains above so sweet  
+That float around, above, their love surround?  
+An-nu-na-ci* from forests, mounts around,  
+And from the streams and lakes, and ocean, trees,  
+And all that haunt the godly place, to please  
+The lovers, softly chant and dance around  
+To cymbals, lyres until the rocks resound,  
+Of goddess Ishtar chant, and Izdubar,  
+The Queen of Love wed to the King of War.  
+And he alarmed starts up and springs away,  
 And furious cries, to Ishtar's wild dismay:
 
-" What meanest thou, thou wanton brazen thing?
-Wouldst thou on me the direst curses bring? "
-And lo! the goddess is transformed! the crown
-Of her own silver skies shines like the sun,
-And o'er her dazzling robes a halo falls;
-Her stately form with glory him appals,
-For Heaven's dazzling splendor o'er her flows,
-With rays celestial; o'er her brow there glows
-A single star.
+*) "Zir-ru," water-nymph.
 
-1 IN ("particula"), Arab. "possessorem designante," et e rad. Arab. m ("aegrotavit"), or מר ("amare"). See Simoni's Lex. Man. Heb. et Chald. et Lat., pp. 105, 106, and Park's Heb. Lex., p. 113.
-2 "An-nu-na-ci," spirits of the earth.
+*) "Mandrake," the "love-plant."
 
-" Have I embraced a god? "
-He horrified now cries; and she doth nod
-Assent.
+*) "Dud'im" or "dudaim," [HEBREW], or Chald. [HEBREW] and Syr. [HEBREW], the "love-plant" or mandrake; perhaps also originally from "du-du" ("love") or ex. [HEBREW] ("particula"), Arab. "possessorem designante," et e rad. Arab. [HEBREW] ("aegrotavit"), or [HEBREW] or "amare." See Simoni's Lex. Man. Heb. et Chald. et Lat., pp. 204-206, and Park's Heb. Lex., p. 113, note †.
 
-" But, oh! wilt thou thy queen forgive?
-I love thee! stay! oh, stay! my heart you grieve! "
+*) "An-nu-na-ci," spirits of the earth.
 
-He springs beyond the mystic circling ring,
-And from their sight thus glides the angry King.
-Beneath the wood himself he doth disguise
-In tattered garments, on his steed he flies:
-And when he comes in sight of Erech's gate.
-His beggar's mantle throws aside; in state
-Again enrobed, composed his anxious face.
-Through Erech's gates he rides with kingly grace;
-O'er his adventure thus the King reflects:
-" Alas my folly leads, my life directs!
-'Tis true, the goddess hath seductive charms,
-E'en yet I feel her warm embracing arms.
-Enough! her love from me I'll drive away;
-Alas! for me, is this unfruitful day! "
+"What meanest thou, thou wanton brazen thing?  
+Wouldst thou on me the direst curses bring?"  
+And lo! the goddess is transformed! the crown  
+Of her own silver skies shines like the sun,  
+And o'er her dazzling robes a halo falls;  
+Her stately form with glory him appals,  
+For Heaven's dazzling splendor o'er her flows,  
+With rays celestial; o'er her brow there glows  
+A single star.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Have I embraced a god?"  
+He horrified now cries; and she doth nod  
+Assent.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"But, oh! wilt thou thy queen forgive?  
+I love thee! stay! oh, stay! my heart you grieve!"
 
-TABLET II--- COLUMN I
+He springs beyond the mystic circling ring,  
+And from their sight thus glides the angry King.  
+Beneath the wood himself he doth disguise  
+In tattered garments, on his steed he flies;  
+And when he comes in sight of Erech's gate,  
+His beggar's mantle throws aside; in state  
+Again enrobed, composed his anxious face,  
+Through Erech's gates he rides with kingly grace;  
+O'er his adventure thus the King reflects:  
+"Alas my folly leads, my life directs!  
+'Tis true, the goddess hath seductive charms,  
+E'en yet I feel her warm embracing arms.  
+Enough! her love from me I'll drive away;  
+Alas! for me, is this unfruitful day!"
 
-Ishtar's Midnight Courtship in the Palace of Izdubar.
+## Tablet 2: Column 1. --- Ishtar's Midnight Courtship in the Palace of Izdubar.
 
-As Samas' car sank in the glowing west,
-And Sin the moon-god forth had come full drest
-For starry dance across the glistening skies.
-The sound of work for man on earth now dies.
-And all betake themselves to sweet repose.
-The silver light of Sin above bright flows,
-And floods the figures on the painted walls,
-O'er sculptured lions, softly, lightly falls;
-Like grim, and silent watch-dogs at the door
-They stand; in marble check their leaping roar.
-The King within his chamber went his way,
-Upon his golden jewelled couch he lay.
-The silken scarlet canopy was hung
-In graceful drapery and loosely clung Around his couch, and purple damask cloths
-Embroidered with rare skill, preserved from moths
-By rich perfumes, to the carved lintel clung
+As Samas' car sank in the glowing west,  
+And Sin the moon-god forth had come full drest  
+For starry dance across the glistening skies,  
+The sound of work for man on earth now dies,  
+And all betake themselves to sweet repose.  
+The silver light of Sin above bright flows,  
+And floods the figures on the painted walls,  
+O'er sculptured lions, softly, lightly falls;  
+Like grim and silent watch-dogs at the door  
+They stand; in marble check their leaping roar.  
+The King within his chamber went his way,  
+Upon his golden jewelled couch he lay.  
+The silken scarlet canopy was hung  
+In graceful drapery and loosely clung  
+Around his couch, and purple damask cloths  
+Embroidered with rare skill, preserved from moths  
+By rich perfumes, to the carved lintel clung  
 In graceful folds; thus o'er the entrance hung.
 
-Queen Ishtar softly comes, and o'er his dreams
-A mystic spell she draws, until it seems
-While half awake he lies, that she is yet
-Close nestling in his arms, as he had met
-Her in the wood, and with her there reclined.
-While her soft arms around him were entwined.
-Thus while he sleeps she hovers o'er his bed
-With throbbing heart, and close inclines her head
-Until her lips near touch the sleeping King's,
-But daring not to kiss.
-
-She love thus brings,
-All through his dreams; until one misty night,
-While he yet restless tossed, the lovely sprite
-Sunk him to deeper sleep with her soft lyre
-While hanging o'er his couch consumed with fire
-That nestling around her heart-strings fiercely burned
-Until at last lulled by the strain he turned
-Upon his couch at rest, and she now lay
-Beside him closely, when she heard him say:
-" My love thou art, but canst not be! " No more
-He murmurs, then inflamed she sought the door.
-" Perchance the su-khn-li'^ sleep not! " she said;
-And satisfied, turned where her lover laid;
-And to his royal couch she crept again;
-Her bliss will have despite of gods and men.
-Her hot and burning lips cannot resist
-The tempting treasure lying there, nor missed
-Shall be the dearest joys of love from her
-Who rules all hearts in Heaven, earth, and air.
-Her right divine that blessing sweet to take,
+Queen Ishtar softly comes, and o'er his dreams  
+A mystic spell she draws, until it seems  
+While half awake he lies, that she is yet  
+Close nestling in his arms, as he had met  
+Her in the wood, and with her there reclined,  
+While her soft arms around him were entwined.  
+Thus while he sleeps she hovers o'er his bed  
+With throbbing heart, and close inclines her head  
+Until her lips near touch the sleeping King's,  
+But daring not to kiss.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;She love thus brings,  
+All through his dreams; until one misty night,  
+While he yet restless tossed, the lovely sprite  
+Sunk him to deeper sleep with her soft lyre  
+While hanging o'er his couch consumed with fire  
+That nestling around her heart-strings fiercely burned  
+Until at last lulled by the strain he turned  
+Upon his couch at rest, and she now lay  
+Beside him closely, when she heard him say:  
+"My love thou art, but canst not be!" No more  
+He murmurs, then inflamed she sought the door.  
+"Perchance the _su-khu-li_* sleep not!" she said;  
+And satisfied, turned where her lover laid;  
+And to his royal couch she crept again;  
+Her bliss will have despite of gods and men.  
+Her hot and burning lips cannot resist  
+The tempting treasure lying there, nor missed  
+Shall be the dearest joys of love from her  
+Who rules all hearts in Heaven, earth, and air.  
+Her right divine that blessing sweet to take,  
 She will assert, her burning thirst to slake.
 
-His couch the Heavenly Queen of Love now graces,
-And on his breast her glorious head she places;
+*) "Su-khu-li," guards of the palace.
 
-* " Su-khu-li," guards of the palace.
-
-Embracing him, she softly through her Hps
-And his, the sweetest earthly nectar sips,
-While he in sleep lies murmuring of love,
-And she in blissful ecstasy doth move.
-Her lips to his, she wildly places there,
+His couch the Heavenly Queen of Love now graces,  
+And on his breast her glorious head she places;  
+Embracing him, she softly through her lips  
+And his, the sweetest earthly nectar sips,  
+While he in sleep lies murmuring of love,  
+And she in blissful ecstasy doth move.  
+Her lips to his, she wildly places there,  
 Until to him it seems a fond nightmare.
 
-And thus, against his will, she fondly takes
-What he her shall deny when he awakes.
-The stolen kisses both the lovers thrill:
-Unqucnched her warm desire would kiss him still,
-But his hot blood now warms him in his dream
-Which is much more to him than it doth seem;
-And clasping her within convulsing arms,
-Receives a thrill that all his nerves alarms.
-And wakes him from the dreams she had instilled.
-" What means this fantasy that hath me filled.
-And spirit form that o'er my pillow leans;
-I wonder what this fragrant incense means?
-Oh, tush! 'tis but an idle, wildering dream.
-But how delightful, joyous it did seem!
-Her beauteous form it had, its breath perfume;
-Do spirit forms such loveliness assume? "
+And thus, against his will, she fondly takes  
+What he her shall deny when he awakes,  
+The stolen kisses both the lovers thrill:  
+Unquenched her warm desire would kiss him still,  
+But his hot blood now warms him in his dream  
+Which is much more to him than it doth seem;  
+And clasping her within convulsing arms,  
+Receives a thrill that all his nerves alarms,  
+And wakes him from the dreams she had instilled.  
+"What means this fantasy that hath me filled,  
+And spirit form that o'er my pillow leans;  
+I wonder what this fragrant incense means?  
+Oh, tush! 'tis but an idle, wildering dream,  
+But how delightful, joyous it did seem!  
+Her beauteous form it had, its breath perfume;  
+Do spirit forms such loveliness assume?"
 
-The goddess yet dares not her form reveal.
-And quickly she herself doth now conceal
-Behind the damask curtains at the door.
-When he awoke, sprang to the chamber floor.
-As his own maid the queen herself transforms,
-Says entering in haste:
-
-" What wild alarms
-Thee, Sar?" and then demure awaits reply.
-In doubt to hear or to his bosom fly.
-" My maid art thou? 'Tis well, for I have dreamed
+The goddess yet dares not her form reveal,  
+And quickly she herself doth now conceal  
+Behind the damask curtains at the door.  
+When he awoke, sprang to the chamber floor,  
+As his own maid the queen herself transforms,  
+Says entering in haste:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"What wild alarms  
+Thee, Sar?" and then demure awaits reply,  
+In doubt to hear or to his bosom fly.  
+"My maid art thou? 'Tis well, for I have dreamed  
 Of spirits, as a Zi-ru fair it seemed."
 
-COLUMN II
-
-The King's Second Dukam and Early Ride upon Sumir's
-Plain, and Hand-to-Hand Conflict on the Banks of
-the Euphrates
+## Tablet 2: Column 2. --- The King's Second Dream and Early Ride upon Sumir's Plain, and Hand-to-Hand Conflict on the Banks of
+the Euphrates.
 
 The night is fleeing from the Hght of dawn,
-
 Which dimly falls upon the palace lawn;
-
 The King upon his royal dum-khi ^ sleeps,
-
 And to his couch again Queen Ishtar creeps.
-
 In spite his dream to dismal thoughts she turns,
-
 Her victim tosses, now with fever burns:
-
 He wildly starts, and from his dum-khi springs,
-
 While loud his voice throughout the palace rings:
-
 " Ho! vassals! haste to me! your King! " he cries.
-
 And stamping fiercely while his passions rise.
-
 The sukhu-li - and masari ^ rush in:
-
 " What trouble, Sar? have foes here come within? "
-
 Then searching around they in his chamber rush.
-
 And eagerly aside the curtains push.
-
 The King yet paces on the floor with strides
-
 That show the trouble of his mind, and chides
-
 Them all as laggards; " Soon the sun will rise:
-
 My steed prepared bring hence! " he turning cries.
-
 He mounts and gallops through the swinging gates,
-
 Nor for attendance of his vassals waits.
-
 Nor turns his face toward the nam-za-khi,'^
-
 Who quickly opened for the King to fly
-
 Without the gates; across the plains he rides
-
 Away unmindful where his steed he guides.
-
 The horse's hoofs resound upon the plain
-
 As the lone horseman with bewildered brain,
-
 To leave behind the phantoms of the night.
-
 Rides fiercely through the early morning light.
-
 Beyond the orange orchards, citron groves,
-
 'Mid feathery date-palms he reckless roves.
 
 1 "Dum-khi," couch.
