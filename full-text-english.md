@@ -290,7 +290,7 @@ From Erech all Kardunia* ruled alone.
 O Moon-god,* hear my cry! With thy pure light  
 Oh, take my spirit through that awful night  
 That hovers o'er the long-forgotten years,  
-To sing Accadia's songs and weep her tears!
+To sing Accadia's songs and weep her tears!  
 'Twas thus I prayed, when lo! my spirit rose  
 On fleecy clouds, enwrapt in soft repose;  
 And I beheld beneath me nations glide  
