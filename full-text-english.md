@@ -1281,188 +1281,153 @@ Of spirits, as a Zi-ru fair it seemed."
 ## Tablet 2: Column 2. --- The King's Second Dream and Early Ride upon Sumir's Plain, and Hand-to-Hand Conflict on the Banks of
 the Euphrates.
 
-The night is fleeing from the Hght of dawn,
-Which dimly falls upon the palace lawn;
-The King upon his royal dum-khi ^ sleeps,
-And to his couch again Queen Ishtar creeps.
-In spite his dream to dismal thoughts she turns,
-Her victim tosses, now with fever burns:
-He wildly starts, and from his dum-khi springs,
-While loud his voice throughout the palace rings:
-" Ho! vassals! haste to me! your King! " he cries.
-And stamping fiercely while his passions rise.
-The sukhu-li - and masari ^ rush in:
-" What trouble, Sar? have foes here come within? "
-Then searching around they in his chamber rush.
-And eagerly aside the curtains push.
-The King yet paces on the floor with strides
-That show the trouble of his mind, and chides
-Them all as laggards; " Soon the sun will rise:
-My steed prepared bring hence! " he turning cries.
-He mounts and gallops through the swinging gates,
-Nor for attendance of his vassals waits.
-Nor turns his face toward the nam-za-khi,'^
-Who quickly opened for the King to fly
-Without the gates; across the plains he rides
-Away unmindful where his steed he guides.
-The horse's hoofs resound upon the plain
-As the lone horseman with bewildered brain,
-To leave behind the phantoms of the night.
-Rides fiercely through the early morning light.
-Beyond the orange orchards, citron groves,
-'Mid feathery date-palms he reckless roves.
-
-1 "Dum-khi," couch.
-2 "Su-khu-li rabi," attendants of the King.
-3 "Masari," guards of the palace.
-4 "Nam-za-ki," openers of the gates.
-
-The fields of yellow grain mid fig-trees flash
-
-Unseen, and prickly pears, pomegranates, dash
-
-In quick succession by, till the white foam
-
-From his steed's mouth and quiv'ring flanks doth come;
-
-Nor heeds the whitened flowing mane, but flies.
-
-While clouds of dust him follow, and arise
-
-Behind him o'er the road like black storm clouds.
-
-While Zu ^ the storm-bird onward fiercely goads
-
-The seven ° raven spirits of the air,
-
-And Nus-ku ^ opens wide the fiery glare
-
-Of pent-up lightnings for fierce Gibil's ** hand,
-
-Who hurls them forth at Ncrgal's " stern command,
-
-And Rinimon ^° rides triumphant on the air.
-
-And Ninazu ^ for victims doth prepare.
-
-The King rides from the road into the wild,
-
-Nor thought of danger, his stern features smiled
-
-As the worn steed from a huge lion shied,
-
-Which turning glanced at them and sprang aside;
-
-Now Zi-pis-au-ni - fly before the King.
-
-And yellow leopards through the rushes spring.
-
-Upon Euphrates' banks his steed he reins.
-
+The night is fleeing from the light of dawn,  
+Which dimly falls upon the palace lawn;  
+The King upon his royal _dum-khi_* sleeps,  
+And to his couch again Queen Ishtar creeps.  
+In spite his dream to dismal thoughts she turns,  
+Her victim tosses, now with fever burns:  
+He wildly starts, and from his _dum-khi_ springs,  
+While loud his voice throughout the palace rings:  
+"Ho! vassals! haste to me! your King!" he cries,  
+And stamping fiercely while his passions rise.  
+The _sukhu-li_* and _masari_* rush in:  
+"What trouble, Sar? have foes here come within?"  
+Then searching around they in his chamber rush,  
+And eagerly aside the curtains push.  
+The King yet paces on the floor with strides  
+That show the trouble of his mind, and chides  
+Them all as laggards; "Soon the sun will rise:  
+My steed prepared bring hence!" he turning cries.  
+He mounts and gallops through the swinging gates,  
+Nor for attendance of his vassals waits.  
+Nor turns his face toward the _nam-za-khi_,*  
+Who quickly opened for the King to fly  
+Without the gates; across the plains he rides  
+Away unmindful where his steed he guides.  
+The horse's hoofs resound upon the plain  
+As the lone horseman with bewildered brain,  
+To leave behind the phantoms of the night,  
+Rides fiercely through the early morning light,  
+Beyond the orange orchards, citron groves,  
+'Mid feathery date-palms he reckless roves.  
+The fields of yellow grain mid fig-trees flash  
+Unseen, and prickly pears, pomegranates, dash  
+In quick succession by, till the white foam  
+From his steed's mouth and quiv'ring flanks doth come;  
+Nor heeds the whitened flowing mane, but flies,  
+While clouds of dust him follow, and arise  
+Behind him o'er the road like black storm clouds,  
+While Zu* the storm-bird onward fiercely goads  
+The seven* raven spirits of the air,  
+And Nus-ku* opens wide the fiery glare  
+Of pent-up lightnings for fierce Gibil's* hand,  
+Who hurls them forth at Nergal's* stern command,  
+And Rimmon* rides triumphant on the air,  
+And Ninazu* for victims doth prepare,  
+The King rides from the road into the wild,  
+Nor thought of danger, his stern features smiled  
+As the worn steed from a huge lion shied,  
+Which turning glanced at them and sprang aside;  
+Now Zi-pis-au-ni* fly before the King.  
+And yellow leopards through the rushes spring.  
+Upon Euphrates' banks his steed he reins,  
 And views the rosy wilds of Sumir's plains.
 
-He looked toward the east across the plain
-That stretched afar o'er brake and marshy fen,
-And clustering trees that marked the Tigris' course;
-And now beyond the plain o'er fields and moors,
-The mountain range of Zu ^ o'er Susa's land
-Is glowing 'neath the touch of Samas' hand;
-For his bright face is rising in the east.
-And shifting clouds from sea and rising mist.
-The robes of purple, violet and gold,
+*) "Dum-khi," couch.
 
-1 "Zu," the divine bird of the storm-cloud, the god worshipped by Izdubar, the god who stole the tablets of heaven.
-2 The seven wicked spirits in the form of men with faces of ravens.
-3 "Nus-ku," the gate-keeper of thunder.
-4 "Gibil," the god of fire and spells.
-5 "Rimmon," the god of storms and hurricanes.
-6 "Nin-a-zu," the goddess of fate and death.
-7 "Zi-pis-au-ni," spirits of the papyri, or reeds.
-8 Mountain range of Zu. The ancient name is unknown, but as Susa takes its name from Zu, the divine bird of the storm-cloud, we have called them the mountains of Zu.
+*) "Su-khu-li rabi," attendants of the King.
 
-and witchcraft. the storm-cloud, we have given the
+*) "Masari," guards of the palace.
 
-* " Ner-gal," director of the storms, mountains of Susiana their probable
+*) "Nam-za-ki," openers of the gates.
 
-the giant King of War, the strong be- ancient name,
-getter.
-
-With rosy tints the form of Samas fold.
-
-The tamarisk and scarlet mistletoe,
-
-With green acacias' golden summits glow,
-
-And citron, olives, myrtle, climbing vine.
-
-Arbutus, cypress, plane-tree rise divine;
-
-The emerald verdure, clad with brilliant hues,
-
-With rose-tree forests quaflFs the morning dews.
-
-The King delighted bares his troubled brow,
-
-In Samas' golden rays doth holy bow.
-
-But see! a shadow steals along the ground!
-
-And trampling footsteps through the copses sound,
-
-And Izdubar, his hand placed on his sword.
-
-Loud cries:
-
-" Who cometh o'er mine Erech's sward? "
-An arme'd warrior before him springs;
-The King, dismounted, his bright weapon swings.
-" 'Tis I, Prince Dib-bara,* Lord Izdubar,
-And now at last alone we meet in war;
-My soldiers you o'erthrew upon the field,
-But here to Nuk-khu's ^ son thine arm shall yield!
-The monarch eyes the warrior evil-born.
-And thus replies to him with bitter scorn:
-" And dost thou think that Samas' son shall die
-By a vile foe who from my host did fly?
-Or canst thou hope that sons of darkness may
-The Heaven-born of Light and glory slay?
-As well mayst hope to quench the god of fire,
-But thou shalt die if death from me desire."
-The giant forms a moment fiercely glared.
-And carefully advanced with weapons bared,
-Which fiash in the bright rays like blades of fire,
-And now in parry meet with blazing ire.
-Each firmly stood and rained their ringing blows,
-And caught each stroke upon their blades, till glows
-The forest round with sparks of fire that flew
-Like blazing meteors from their weapons true;
-
-1 "Dib-bara" ("the darkening one"), the son of Nuk-khu. He is supposed to have been the viceroy of Khumbaba, and led the attack upon Erech.
-2 "Nuk-hu," or "Nuk-khu," the god of darkness and sleep. He is sometimes called "Cus-u."
-
-And towering in their rage they cautious sprung
-Upon each, foiled, while the deep Suk-ha *' rung.
-At last the monarch struck a mighty blow,
-His foeman's shield of gold, his blade cleft through;
-And as the lightning swung again his sword,
-And struck the chieftain's blade upon the sward,
-A Sedu springs from out the tangled copse.
-And at his feet the sword still ringing drops.
-The King his sword placed at his foeman's throat
-And shouted:
-
-" Hal-ca '^ to yon waiting boat!
-Or I will send thy body down this stream!
-Ca is-kab-bu! va kal-bn!^ whence you came!''
-The chief disarmed now slunk away surprised,
-And o'er the strength of Sar-dan-nu ** surmised.
-The King returns, and rides within the gate
+He looked toward the east across the plain  
+That stretched afar o'er brake and marshy fen,  
+And clustering trees that marked the Tigris' course;  
+And now beyond the plain o'er fields and moors,  
+The mountain range of Zu* o'er Susa's land  
+Is glowing 'neath the touch of Samas' hand;  
+For his bright face is rising in the east,  
+And shifting clouds from sea and rising mist,  
+The robes of purple, violet and gold,  
+With rosy tints the form of Samas fold.  
+The tamarisk and scarlet mistletoe,  
+With green acacias' golden summits glow,  
+And citron, olives, myrtle, climbing vine,  
+Arbutus, cypress, plane-tree rise divine;  
+The emerald verdure, clad with brilliant hues,  
+With rose-tree forests quaffs the morning dews.  
+The King delighted bares his troubled brow,  
+In Samas' golden rays doth holy bow.  
+But see! a shadow steals along the ground!  
+And trampling footsteps through the copses sound,  
+And Izdubar, his hand placed on his sword,  
+Loud cries:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Who cometh o'er mine Erech's sward?"  
+An armèd warrior before him springs;  
+The King, dismounted, his bright weapon swings.  
+"'Tis I, Prince Dib-bara,* Lord Izdubar,  
+And now at last alone we meet in war;  
+My soldiers you o'erthrew upon the field,  
+But here to Nuk-khu's* son thine arm shall yield!  
+The monarch eyes the warrior evil-born,  
+And thus replies to him with bitter scorn:  
+"And dost thou think that Samas' son shall die  
+By a vile foe who from my host did fly?  
+Or canst thou hope that sons of darkness may  
+The Heaven-born of Light and glory slay?  
+As well mayst hope to quench the god of fire,  
+But thou shalt die if death from me desire."  
+The giant forms a moment fiercely glared,  
+And carefully advanced with weapons bared,  
+Which flash in the bright rays like blades of fire,  
+And now in parry meet with blazing ire.  
+Each firmly stood and rained their ringing blows,  
+And caught each stroke upon their blades, till glows  
+The forest round with sparks of fire that flew  
+Like blazing meteors from their weapons true;  
+And towering in their rage they cautious sprung  
+Upon each, foiled, while the deep Suk-ha* rung.  
+At last the monarch struck a mighty blow,  
+His foeman's shield of gold, his blade cleft through;  
+And as the lightning swung again his sword,  
+And struck the chieftain's blade upon the sward,  
+A Sedu springs from out the tangled copse,  
+And at his feet the sword still ringing drops.  
+The King his sword placed at his foeman's throat  
+And shouted:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Hal-ca* to yon waiting boat!  
+Or I will send thy body down this stream!  
+_Ca is-kab-bu! va kal-bu!_* whence you came!"  
+The chief disarmed now slunk away surprised,  
+And o'er the strength of Sar-dan-nu* surmised.  
+The King returns, and rides within the gate  
 Of Erech, and the council entered late.
 
-COLUMN III
+*) "Zu," the divine bird of the storm-cloud, the god worshipped by Izdubar, the god who stole the tablets of heaven.
 
-IzDUBAR Relates His Second Dream to His Seers, Who
-Cannot Interpret It
+*) The seven wicked spirits in the form of men with faces of ravens.
+
+*) "Nus-ku," the gate-keeper of thunder.
+
+*) "Gibil," the god of fire and spells and witchcraft.
+
+*) "Ner-gal," director of the storms, the giant King of War, the strong begetter.
+
+*) "Rimmon," the god of storms and hurricanes.
+
+*) "Nin-a-zu," the goddess of fate and death.
+
+*) "Zi-pis-au-ni," spirits of the papyri, or reeds.
+
+*) Mountain range of Zu. The ancient name is unknown, but as Susa takes its name from Zu, the divine bird of the storm-cloud, we have given the mountains of Susiana their probable ancient name.
+
+*) "Dib-bara" ("the darkening one"), the son of Nuk-khu. He is supposed to have been the viceroy of Khumbaba, and led the attack upon Erech.
+
+*) "Nuk-hu," or "Nuk-khu," the god of darkness and sleep. He is sometimes called "Cus-u."
+
+## Tablet 2: Column 3. --- Izdubar Relates His Second Dream to His Seers, Who Cannot Interpret It.
 
 The counsellors assembled round the throne
 Within the council halls of zam-at ^ stone,
