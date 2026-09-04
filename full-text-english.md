@@ -14,23 +14,23 @@
 
 ## Table of Contents.
 
-#### Special Introduction.
+#### [Special Introduction.](#special-introduction-1)
 
-### The Epic of Ishtar and Izdubar:
+### [The Epic of Ishtar and Izdubar:](#ishtar-and-izdubar)
 
-#### The Invocation.
+#### [The Invocation.](#tablet-1-column-1-----invocation)
 
-#### The Fall of Erech.
+#### [The Fall of Erech.](#tablet-1-column-2-----the-fall-of-erech)
 
-#### The Rescue of Erech.
+#### [The Rescue of Erech.](#tablet-1-column-3-----the-rescue-of-erech-by-izdubar)
 
-#### Coronation of Izdubar.
+#### [Coronation of Izdubar.](#tablet-1-column-4-----coronation-of-izdubar)
 
-#### Ishtar and Her Maids.
+#### [Ishtar and Her Maids.](#tablet-1-column-5-----ishtar-and-her-maids-in-the-favorite-haunt-of-izdubar)
 
-#### Izdubar Falls in Love with Ishtar.
+#### [Izdubar Falls in Love with Ishtar.](#tablet-1-column-6-----izdubar-falls-in-love-with-ishtar-the-queen-of-love)
 
-#### Ishtar's Midnight Courtship.
+#### [Ishtar's Midnight Courtship.](#tablet-2-column-1-----ishtars-midnight-courtship-in-the-palace-of-izdubar)
 
 #### The King's Second Dream.
 
