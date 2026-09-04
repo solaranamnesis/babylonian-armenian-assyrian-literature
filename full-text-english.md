@@ -1278,8 +1278,7 @@ In doubt to hear or to his bosom fly.
 "My maid art thou? 'Tis well, for I have dreamed  
 Of spirits, as a Zi-ru fair it seemed."
 
-## Tablet 2: Column 2. --- The King's Second Dream and Early Ride upon Sumir's Plain, and Hand-to-Hand Conflict on the Banks of
-the Euphrates.
+## Tablet 2: Column 2. --- The King's Second Dream and Early Ride upon Sumir's Plain, and Hand-to-Hand Conflict on the Banks of the Euphrates.
 
 The night is fleeing from the light of dawn,  
 Which dimly falls upon the palace lawn;  
