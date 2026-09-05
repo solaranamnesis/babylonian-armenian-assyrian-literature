@@ -1702,338 +1702,275 @@ While soft-eyed maidens dance and cymbals play.
 
 ## Tablet 2: Column 5. --- Expedition of Zaidu in Search of the Seer.
 
-Prince Zaidu on his steed now hastes away,
-Upon the plains he travelled all that day;
-Next morn the Za-Gabri he slow ascends,
-Along the mountain sides the horseman wends
-Beneath the Eri-ni/ and cliffs, and sees
-The plains and mountains o'er the misty trees
-From the wild summit, and old Khar-sak glow
-Above them all with its twin crests of snow.
-He plunges in the wild to seek the cave;
-Three days unceasing sought young Zaidu brave,
-
-* " Eri-ni," cedar-trees.
-
-And now at last within the glen he rode,
-And near approached Heabani's wild abode.
-At last he sees the seer before his home,
-And with his monster - now toward him come,
-That walked subdued beside the hermit seer,
+Prince Zaidu on his steed now hastes away,  
+Upon the plains he travelled all that day;  
+Next morn the Za-Gabri he slow ascends,  
+Along the mountain sides the horseman wends  
+Beneath the Eri-ni,* and cliffs, and sees  
+The plains and mountains o'er the misty trees  
+From the wild summit, and old Khar-sak glow  
+Above them all with its twin crests of snow.  
+He plunges in the wild to seek the cave;  
+Three days unceasing sought young Zaidu brave,  
+And now at last within the glen he rode,  
+And near approached Heabani's wild abode.  
+At last he sees the seer before his home,  
+And with his monster* now toward him come,  
+That walked subdued beside the hermit seer,  
 Thus they upon the rocks above appear.
 
-" Why art thou here in warrior's array? "
-The hermit cries. *' I know thee not! away! "
+*) "Eri-ni," cedar-trees.
 
-" O holy seer, 'tis Zaidu, from our Sar!
+"Why art thou here in warrior's array?"  
+The hermit cries. "I know thee not! away!"
+
+"O holy seer, 'tis Zaidu, from our Sar!  
 The king of Erech, chieftain Izdubar."
 
-" What seekest thou within my mountain lair? "
-Heabani angry cried. " What brings thee here?"
+"What seekest thou within my mountain lair?"  
+Heabani angry cried. "What brings thee here?"
 
-" For thee! if true Heabani is thy name;
-
-I seek the hermit seer of wondrous fame.
-
-My king doth offer thee rich gifts of state^
-
-And sent me to thee here to make thee great.
-
-No empty honors do I seek, which void
-
-Of all true happiness, all men have cloyed.
-
-Return then to thy haunts of pleasure, pain,
-
-For thy king's embassy is all in vain."
-
-The seer returns within his lonely cave
-
-And leaves the prince alone the beast to brave.
-
-At last it slinks away within the gloom;
-
-No more from their wild home doth either come,
-
-Three days Prince Zaidu watches the dark lair.
-
-But now his courage turns to blank despair:
-
-The seer hath changed his mind since Samas sought
-
-To urge him forth to leave his lonely lot.
-
-The prince the mountain precipice nOw climbs.
-
-And peers within while clinging to the limbs
-
-Of stunted oaks, and views the mountain lair;
-
-But all in vain his calls ring on the air.
-
-Then mounting wearily his steed he turns
-
+"For thee! if true Heabani is thy name;  
+I seek the hermit seer of wondrous fame.  
+My king doth offer thee rich gifts of state,  
+And sent me to thee here to make thee great.  
+No empty honors do I seek, which void  
+Of all true happiness, all men have cloyed.  
+Return then to thy haunts of pleasure, pain,  
+For thy king's embassy is all in vain."  
+The seer returns within his lonely cave  
+And leaves the prince alone the beast to brave.  
+At last it slinks away within the gloom;  
+No more from their wild home doth either come,  
+Three days Prince Zaidu watches the dark lair,  
+But now his courage turns to blank despair:  
+The seer hath changed his mind since Samas sought  
+To urge him forth to leave his lonely lot.  
+The prince the mountain precipice now climbs,  
+And peers within while clinging to the limbs  
+Of stunted oaks, and views the mountain lair;  
+But all in vain his calls ring on the air.  
+Then mounting wearily his steed he turns  
 Away, and unsuccessful thus returns.
 
-* A carnivorous animal supposed to have been either a lion or a tiger, more
-probably a lion.
+*) A carnivorous animal supposed to have been either a lion or a tiger, more probably a lion.
 
-COLUMN VI
-Heabani Resolves to Return to Erech
+## Tablet 2: Column 6. --- Heabani Resolves to Return to Erech.
 
-As Zaidu sadly turns and rides away,
-
-The hermit from his cave comes forth to pray:
-
-" Alas! hath all these wilds their charms here lost?
-
-And is my hreast with wild ambition tost?
-
-My lonely cot I look upon with shame;
-
-Again I long to seek the fields of fame,
-
-Where luxury my remaining years
-
-May crown, and happiness may find --- or tears;
-
-'Tis true! I should have welcomed the bar-ru; ^
-
-But he hath since returned to Subartu." ^
-
-His harp he took from its dust-covered case,
-
-And kissed its carved and well-remembered face;
-
-And tuning it, he glanced toward the wood,
-
+As Zaidu sadly turns and rides away,  
+The hermit from his cave comes forth to pray:  
+"Alas! hath all these wilds their charms here lost?  
+And is my breast with wild ambition tost?  
+My lonely cot I look upon with shame;  
+Again I long to seek the fields of fame,  
+Where luxury my remaining years  
+May crown, and happiness may find --- or tears;  
+'Tis true! I should have welcomed the _bar-ru_;*  
+But he hath since returned to Subartu."*  
+His harp he took from its dust-covered case,  
+And kissed its carved and well-remembered face;  
+And tuning it, he glanced toward the wood,  
 And sang his farewell ode to solitude:
 
-Farewell, ye mountains, woods and trees ---
+Farewell, ye mountains, woods and trees ---  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;My heart doth long again for joy;  
+I love your wilds and mossy leas,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;But oh, your solitude doth cloy!
 
-My heart doth long again for joy;
-I love your wilds and mossy leas.
+I love to see the _bur-khi-is_*  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Sweep stately o'er the mossy rocks;  
+And _tsabi_* in a wild like this,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Hear the tattoo of red woodchucks.
 
-But oh, your solitude doth cloy!
+I love the cries of _lig-bar-ri_*  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The _nes-i_* calling for their prey;  
+And leaping of the _na-a-li_,*  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;That fly in wildest fear away.
 
-I love to see the bur-khi-is ^
+I love the _bu-hir-tser-i_* all,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;_Khar-sa-a-nu sa-qu-u-tu_;*  
+Hear _cu-uts-tsi_* with thunder roll  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Across the skies within my view.
 
-Sweep stately o'er the mossy rocks;
-And tsabi ■* in a wild like this,
+*) "Bar-ru," an army officer.
 
-Hear the tattoo of red woodchucks.
+*) "Su-bar-tu," Syria.
 
-I love the cries of Ug-har-ri ^
+*) "Bur-khi-is," antelopes.
 
-The ncs-i *' calling for their prey;
-And leaping of the na-a-li,''
+*) "Tsabi," gazelles.
 
-That fly in wildest fear away.
+*) "Lig-bar-ri," hyenas.
 
-I love the hu-hir-tscr-i ^ all,
-Khar-sa-a-nii sa-qii-u-tu; "
+*) "Nes-i," lions.
 
-1 "Bar-ru," an army officer.
-2 "Su-bar-tu," Syria.
-3 "Bur-khi-is," antelopes.
-4 "Tsabi," gazelles.
-5 "Lig-bar-ri," hyenas.
-6 "Nes-i," lions.
-7 "Na-a-li," spotted stags.
-8 "Hu-bir-tser-i," beasts of the field.
-9 "Khar-sa-a-nu sa-qu-u-tu," forests thick.
+*) "Na-a-li," spotted stags.
 
-Hear cu-uts-tsi ^^ with thunder roll
-Across the skies within my view,
+*) "Bu-hir-tser-i," beasts of the field.
 
-I love to see the ca-ca-bi ^
+*) "Khar-sa-a-nu sa-qu-u-tu," forests thick.
 
-Peep through the pine-trees o'er my home,
-And watch the wild tu-ra-a-khi ^
+I love to see the _ca-ca-bi_*  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Peep through the pine-trees o'er my home,  
+And watch the wild _tu-ra-a-khi_*  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And _arme_* welcome, to me come.
 
-And armc ^ welcome, to me come.
+Farewell! ye solitudes, farewell!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;I will not moulder rotting lie  
+With no one's lips to wish me well;  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;O give me immortality!
 
-Farewell! ye solitudes, farewell!
+But what is fame? A bubble blown  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Upon the breeze, that bursts its shell,  
+And all our brightest hopes are flown,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And leaves our solitude a hell.
 
-I will not moulder rotting lie
-With no one's lips to wish me well;
-
-O give me immortality!
-
-But what is fame? A bubble blown
-
-Upon the breeze, that bursts its shell,
-And all our brightest hopes are flown.
-
-And leaves our solitude a hell.
-
-The holy minstrel bows his head in woe,
-
-And sweeps the harpstrings with a movement slow;
-
-Then lifts his eyes toward the setting sun,
-
+The holy minstrel bows his head in woe,  
+And sweeps the harpstrings with a movement slow;  
+Then lifts his eyes toward the setting sun,  
 His evening invocation thus begun:
 
-*■ O Samas! to the lifting of my hands
+O Samas!* to the lifting of my hands  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Show favor! unto me thy servant turn!  
+What man before thy blessèd Light withstands?  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;O thou! what mortal thine own words can learn?  
+And who can rival them inviolate?  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Among* the gods no equal thou hast found.  
+In Heaven who of all the gods is great?  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;O thou alone! art great through Heaven's bound!
 
-Show favor! unto me thy servant turn!
-What man before thy blessed Light withstands?
-O thou! what mortal thine own words can learn?
-And who can rival them inviolate?
+On earth what man is great? alas! no one,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;For thou alone art great! through earth's vast bounds.  
+When wide thy awful voice in Heaven resounds,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The gods fall prostrate to our Holy One;
 
-^ Among the gods no equal thou hast found.
-In Heaven who of all the gods is great?
+*) "Cu-uts-tsi," storms.
 
-O thou alone! art great through Heaven's bound!
+*) "Ca-ca-bi," stars.
 
-On earth what man is great? alas! no one.
+*) "Tu-ra-a-khi," deer.
 
-For thou alone art grfat! through earth's vast
-bounds.
+*) "Arme," wild goats.
 
-When wide thy awful voice in Heaven resounds,
-The gods fall prostrate to our Holy One;
+*) This prayer is made up from Assyrian fragments now in the British Museum.
 
-^° " Cu-uts-tsi," storms. Syrian fragments now in the British
+*) See "Records of the Past," vol. 3. p. 136.
 
-'^ " Ca-ca-bi." stars. Museum.
+When on the earth thy voice afar resounds,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The genii* bow to thee and kiss the dust.  
+In thee, O Samas! do I put my trust,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;For thy great love and mercy wide abounds!
 
-2 " Tu-ra-a-khi," deer. ^ See " Records of the Past," vol. iii.
-
-^ " Arme," wild goats. p. 136.
-
-* This prayer is made up from As-
-
-When on the earth thy voice afar resounds,
-The genii ° bow to thee and kiss the dust.
-
-In thee, O Samas! do I put my trust,
-
-For thy great love and mercy wide abounds!
-
-O my Creator, God, thy watchfulness
-
-O'er me, oh may it never cease!
-
-Keep thou the opening of my lips! the fleece
-Of purest snow be my soul's daily dress.
-Guard thou my hands! O Samas, Lord of Light!
+O my Creator, God, thy watchfulness  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;O'er me, oh may it never cease!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Keep thou the opening of my lips! the fleece  
+Of purest snow be my soul's daily dress.  
+Guard thou my hands! O Samas, Lord of Light!  
 And ever keep my life and heart aright!
 
-TABLET III--- COLUMN I
+## Tablet 3: Column 1. --- Heabani's Wisdom --- Song of the Khau-ik-i.
 
-Heabani's Wisdom --- Song of the Khau-ik-i
-
-The dark-eyed maids are dancing in the halls
-Of Erech's palace: music fills the walls
-Of splendor where the Sar-dan-nu ^ enthroned,
-His hours is whiling by the maidens zoned;
-A whirling garland chanting forth a song,
+The dark-eyed maids are dancing in the halls  
+Of Erech's palace: music fills the walls  
+Of splendor where the Sar-dan-nu* enthroned,  
+His hours is whiling by the maidens zoned;  
+A whirling garland chanting forth a song,  
 Accompanied with harps thus sang the throng:
 
-" Heabani's wisdom chant and singTo Erech's king our mighty Sar.-
+"Heabani's wisdom chant and sing  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;To Erech's king our mighty Sar.*  
+When Hea did Heabani bring,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Who now to Erech comes afar,  
+He taught him then all hidden things  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Of Ki* or bright Samu* above,  
+That to the Mu-di* mystery brings.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Oh, how Heabani we shall love!
 
-When Hea did Heabani bring,
-Who now to Erech comes afar.
+_Chorus_
 
-He taught him then all hidden things
-Of Ki ^ or bright Samu * above.
+"Then sing with joy ye Khau-ik-i!*  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The Khau-ga* chant with waving arms,  
+The Nin-uit* sing Au-un-na-ci*  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Give to our Sar your sweetest charms.
 
-That to the Mu-di ^ mystery brings.
-Oh, how Heabani we shall love!
+*) "Genii," spirits.
 
-CJwnts
+*) "Sar-dan-nu," the great King.
 
-" Then sing with joy ye Khau-ik-i! **
+*) "Sar," king.
 
-The Khau-ga ^ chant with waving arms,
-The Nin-uit * sing Au-un-na-ci ^
+*) "Ki," earth.
 
-Give to our Sar your sweetest charms.
+*) "Samu," heaven.
 
-' " Genii," spirits. * " Mu-di," seers or wise men.
+*) "Mu-di," seers or wise men.
 
-'"Sar-dan-nu," the great King. ""Khau-ik-i," the choral band.
+*) "Khau-ik-i," the choral band.
 
-'^ " Sar," king. '' " Khau-ga." chorus.
+*) "Khau-ga," chorus.
 
-^" Ki," earth. * " f\'in-uit," song.
+*) "Nin-uit," song.
 
-'"Samu," heaven. » " An-un-na-ci," spirits of the earth.
+*) "An-un-na-ci," spirits of the earth.
 
-" All knowledge that is visible
+"All knowledge that is visible  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Heabani holds it in his glance,  
+Sees visions inconceivable,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The Zi* his wizard eyes entrance.  
+Sweet peace he brings from troubled dreams,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;He comes to El-li-tar-du-si,*  
+From a far road by mountain streams;  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Then sing with joy ye Khau-ik-i!
 
-Heabani holds it in his glance,
-Sees visions inconceivable,
+_Chorus_
 
-The Zi ^^ his wizard eyes entrance.
-Sweet peace he brings from troubled dreams,
+"Then sing with joy ye Khau-ik-i!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The Khau-ga chant with waving arms,  
+The Nin-uit sing An-un-na-ci!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Give to our Sar your sweetest charms.
 
-He comes to El-li-tar-du-si,^
-From a far road by mountain streams;
+"E'en all that on the tablet rests,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;In Erech's tower, the Su-bu-ri,*  
+The beautiful, with glorious crests,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;He wrote for far posterity.  
+We plead with him to leave us not,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;But Zi-Gab-ri* him led away,  
+When our great Shal-man* joy us brought,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And Elam fled to the blue sea.
 
-Then sing with joy ye Khau-ik-i!
+_Chorus_
 
-Chorus
+"Then sing with joy ye Khau-ik-i!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Il-gi-sa-kis-sat* from above.  
+The Nin-uit sing An-un-na-ci!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Oh, how Heabani we shall love!"
 
-" Then sing with joy ye Khau-ik-i!
-
-The Khau-ga chant with waving arms.
-The Nin-uit sing An-vm-na-ci!
-
-Give to our Sar your sweetest charms.
-
-" E'en all that on the tablet rests.
-
-In Erech's tower, the Su-bu-ri,-
-The beautiful, with glorious crests,
-
-He wrote for far posterity.
-We plead with him to leave us not,
-
-But Zi-Gab-ri ^ him led away.
-When our great Shal-man * joy us brought,
-
-And Elam fled to the blue sea.
-
-Clwrits
-
-" Then sing with joy ye Khau-ik-i!
-Il-gi-sa-kis-sat ^ from above.
-The Nin-uit sing An-un-na-ci!
-
-Oh, how Heabani we shall love! "
-
-The maidens note their monarch's moody face,
-And turn their songs to him with easy grace,
-Of their great ruler tune a joyous lay,
-And oft into his eyes hurl glances gay;
-And trumpets join the chorus, rolling drums,
-And wild applause from all the chieftains comes,
-
-10 •« 2i^" spirits of the earth, air, ' " Zi-Gab-ri," spirits of the moun-
-
-water, etc. tains.
-
-1 " El-li-tar-du-si," one of the temples * " Shal-man," deliverer.
-
-of Erech. ^ " Il-gi-sa-kis-sat," spirits of the
-
-2 " Su-bu-ri," the lofty. hosts.
-
-Till the grave seers and councillors now cry
-In praise of him they love so tenderly:
-With arms upraised the mighty chorus join,
-Until his heart is filled with joy divine;
-And thus they sing with more than royal praise.
+The maidens note their monarch's moody face,  
+And turn their songs to him with easy grace,  
+Of their great ruler tune a joyous lay,  
+And oft into his eyes hurl glances gay;  
+And trumpets join the chorus, rolling drums,  
+And wild applause from all the chieftains comes,  
+Till the grave seers and councillors now cry  
+In praise of him they love so tenderly:  
+With arms upraised the mighty chorus join,  
+Until his heart is filled with joy divine;  
+And thus they sing with more than royal praise,  
 Their love for him in every face doth blaze.
 
-COLUMN II
+*) "Zi," spirits of the earth, air, water, etc.
 
-Songs in Praise of Izdubar and Heabani as Sung by the
+*) "El-li-tar-du-si," one of the temples of Erech.
 
-Khau-ik-i
+*) "Su-bu-ri," the lofty.
+
+*) "Zi-Gab-ri," spirits of the mountains.
+
+*) "Shal-man," deliverer.
+
+*) "Il-gi-sa-kis-sat," spirits of the hosts.
+
+## Tablet 3: Column 2. --- Songs in Praise of Izdubar and Heabani as Sung by the Khau-ik-i.
 
 Our Izdubar dear Erech raised
 
