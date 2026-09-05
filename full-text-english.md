@@ -2,7 +2,11 @@
 
 ### The Epic of Izdubar, Hymns, Tablets, and Cuneiform Inscriptions
 
-#### With a special introduction by Epiphanius Wilson, A. M.
+#### With a special introduction by Epiphanius Wilson, M. A.
+
+### Including Armenian Literature, comprising Poetry, Drama, Folk-Lore and Classic Traditions;
+
+#### With a special introduction by Robert Arnot, M. A.
 
 #### Revised Edition.
 
