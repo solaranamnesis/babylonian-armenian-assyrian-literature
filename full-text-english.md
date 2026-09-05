@@ -1428,370 +1428,289 @@ Of Erech, and the council entered late.
 
 ## Tablet 2: Column 3. --- Izdubar Relates His Second Dream to His Seers, Who Cannot Interpret It.
 
-The counsellors assembled round the throne
-Within the council halls of zam-at ^ stone,
-Now greet their monarch, and behold his face
-With trouble written on his brow, and trace
-Uneasiness within that eagle eye.
-While he with stately tread, yet wearily
-His throne approached; he turned to the mu-di,^
-And swept a glance upon his khas-iz-i.*
-Uneasy they all eyed his troubled face,
-For he had ridden at a furious pace.
-The ahidi * had told them on that morn,
-How he across the plains had wildly torn
-
-1 "Suk-ha," wood or grove, or a forest.
-2 "Hal-ca!" "Go!"
-3 "Ca is-kab-bu! va kal-bu!" "Thou fool and dog!" "Ca" ("thou") is the short form of "cat-ta" or "ca'a"; generally it appears as "at-ta."
-4 "Sar-dan-nu," the great King.
-5 "Zam-at" stone, diamond, crystal or lapis lazuli.
-6 "Mu-di," seers.
-7 "Khas-i-zi," counsellors.
-8 "Ab-u-li," guard of the great gates of the city.
-
-To drive away some vision of the night.
-
-One asked, " Hath our Sardan-nu's dreams been light?
-
-Or hath dread phantoms o'er thy pillow hung?
-
-For trouble on thy countenance hath clung."
-
-The monarch startled at the question eyes
-
-The councillor, and to him thus replies:
-
-" 'Tis true, my counsellors and wisest men,
-
-I dreamed a fearful dream Sat mu-si; ^ when
-
-I have disclosed it, if one clear reveals
-
-Its meaning all and naught from me conceals,
-
-On him will I the greatest wealth bestow:
-
-I will ennoble him, and the sib-su '^
-
-A ku-bar-ra ^ for him shall rich prepare;
-
-As my tur-tan-n ** he shall be, and seer.
-
-Decked with a golden chain shall next preside
-
-At every feast, and break his bread beside
-
-The King, and highest rank he shall attain
-
-'Mong counsellors, and mine own favor gain;
-
-And seven wives to him I will allow,
-
-And a grand palace. This as King I vow,
-
-The scribe it shall enroll above my seal
-
+The counsellors assembled round the throne  
+Within the council halls of _zam-at_* stone,  
+Now greet their monarch, and behold his face  
+With trouble written on his brow, and trace  
+Uneasiness within that eagle eye,  
+While he with stately tread, yet wearily  
+His throne approached; he turned to the mu-di,*  
+And swept a glance upon his khas-iz-i.*  
+Uneasy they all eyed his troubled face,  
+For he had ridden at a furious pace.  
+The _abuli_* had told them on that morn,  
+How he across the plains had wildly torn  
+To drive away some vision of the night.  
+One asked, "Hath our Sardan-nu's dreams been light?  
+Or hath dread phantoms o'er thy pillow hung?  
+For trouble on thy countenance hath clung."  
+The monarch startled at the question eyes  
+The councillor, and to him thus replies:  
+"'Tis true, my counsellors and wisest men,  
+I dreamed a fearful dream Sat mu-si;* when  
+I have disclosed it, if one clear reveals  
+Its meaning all and naught from me conceals,  
+On him will I the greatest wealth bestow:  
+I will ennoble him, and the _sib-zu_*  
+A _ku-bar-ra_* for him shall rich prepare;  
+As my _tur-tan-u_* he shall be, and seer,  
+Decked with a golden chain shall next preside  
+At every feast, and break his bread beside  
+The King, and highest rank he shall attain  
+'Mong counsellors, and mine own favor gain;  
+And seven wives to him I will allow,  
+And a grand palace. This as King I vow,  
+The scribe it shall enroll above my seal  
 As Erech's Sar's decree beyond repeal.
 
-I dreamed upon my dum-klii^ fast asleep,
+*) "Suk-ha," wood or grove, or a forest.
 
-The stars from heaven fell from yonder deep
+*) "Hal-ca!" "Go!"
 
-To earth; and one, with fierceful heat my back
+*) "Ca is-kab-bu! va kal-bu!" "Thou fool and dog!" "Ca" ("thou") is the short form of "cat-ta" or "ca'a"; generally it appears as "at-ta."
 
-Did pierce as molten fire, and left its track
+*) "Sar-dan-nu," the great King.
 
-Of flames like some huge ball along my spine;
+*) "Zam-at" stone, diamond, crystal or lapis lazuli.
 
-And then transformed, it turned its face to mine;
+*) "Mu-di," seers.
 
-As some fierce god it glowed before my sight
+*) "Khas-i-zi," counsellors.
 
-Till agony was lost in dread affright.
+*) "Ab-u-li," guard of the great gates of the city.
 
-I rooted stood, in terror, for its face
-
-Was horrible; I saw in its feet's place
-
-A lion's claws. It sprang, my strength it broke,
-
-And slew me, gloating over me! Awoke,
-
-I sprang, methought I was a corpse ka-ra ^°
-
-1 "Sat mu-si," in the night-time, or last night.
-2 "Sib-zu," embroiderer.
-3 "Ku-bar-ra," robe of a prince.
-4 "Tur-tan-u," next in rank to the King.
-5 "Dum-khi" or "dun-khi," couch.
-6 "Ka-ra! va," etc., "Speak out! and if thou augurest the death of the King, or if thou augurest life of extended years, I have spoken! Speak out! and cast the lots! may they be propitious with us!" "Va tal-ka mat sar, falka hit-la sha Ra-pas-ti sat-ti, ar-id-da! ka-ra, Va hal-li-ka! lik-ni-bit ki-mi-ta!"
-
-The seers in silence stand, perplexed and think;
-
-But from the task at once the wisest shrink.
-
-The King- each face soon read:
-
-" Ye tell me no? "
-And nodding all, concealed from him their woe,
-For they beheld within the dream some fate
-Impending o'er him born of godly hate.
-And durst not to their monarch prate their fears,
-For flatterers of kings are all his seers.
-The King impatient eyed them all with scorn.
-And hid his thoughts by wildest passions born;
-And then at last contemptuous to them said,
-" So all my seers of trouble are afraid?
-Or else in ignorance you turn away;
-'Tis well! I sorely need a seer this day."
-And they now prostrate fall before his throne,
-" Forgive thy seers! " one cries, " O mighty One!
-For we this dreadful dream do fear portends
-Thy harm! a god some message to thee sends!
-We know not what, but fear for thee, our Sar,
-And none but one can augur it; afar
-He lives, Heabani should before the King
-Be brought from Za-Ga-bri ^ the na-bu - bring! ''
-" 'Tis well! Prince Zaidu for the hermit send.
-And soon this mystery your Sar will end."
-The King distressed now to the temple goes
-To lay before the mighty gods his woes;
-This prayer recites to drive away bad dreams.
-While Samas' holy altar brightly gleams:
-' " O Samas! may my prayer bring me sweet rest,
-And may my Lord his favor grant to me:
-Annihilate the things that me invest!
-
-1 "Za-Ga-bri," the mountains of Zu, "Ga-bri" ("mountains"), and "Za," another form of "zu," the divine bird of the storm-cloud. They were at one time called the mountains of Susa, now the Kurdistan range of mountains. The name we have given we believe to be the probable ancient one.
-2 "Na-bu," prophet, seer.
-3 We have here quoted a prayer after a bad dream, the text of which is lithographed in "C. I. W. A.," vol. iv. 66, 2, and is supposed to be an ancient Accadian prayer. See "Records of the Past," vol. ix. p. 151.
-
-This day, O God! distressed, I cry to thee!
-
-0 goddess! be thou gracious unto me,
-Receive my prayer, my sins forgive I pray:
-My wickedness and will arrayed 'gainst thee.
-Oh, pardon me! O God, be kind this day,
-My groaning may the seven winds destroy,
-Clothe me with deep humility! receive
-
-My prayers, as winged birds, oh, may they fly
-And fishes carry them, and rivers weave
-Them in the waters on to thee, O God!
-As creeping things of the vast desert, cry
-
-1 unto thee outstretched on Erech's sod;
-And from the river's lowest depths I pray;
-
-My heart cause thou to shine like polished gold.
-
-Though food and drink of Nin-a-zu * this day
-
-Be mine, while worms and death thy servant fold.
-
-Oh, from thine altar me support, protect.
-
-In low humility I pray, forgive!
-
-Feed me with joy, my dreams with grace direct;
-
-The dream I dreamed, oh favorable give
-
-To me its omen filled with happiness!
-
-May Mak-hir,^^ god of dreams, my couch invest I
-
-With visions of Bit-sag-gal my heart bless,
-
-The temple of the gods, of Nin, with rest
-
-Unbroken, and to Merodach I pray!
-
-The favoring one, to prosper me and mine:
-
-® Oh, may thy entering exalted be!
-
-And thy divinity with glory shine,
-
-And may our city shine with glowing meads.
-
-And all my people praise thy glorious deeds."
-
-Now to Euphrates' banks the Sar and seers
-
-Their footsteps turn to pray into the ears
-
-Of Hea,^ where, in white, a band of priests
-
-Drawn in a crescent, Izdubar invests.
-
-Now at the water's edge he leans, his hands
-
-* " Nin-a-zu," the goddess of dark- vol. ix. p. 151. We have followed as
-
-ness and death. literally as possible the original, and
-
-° Mak-hir, the daughter of the sun, have given it its probable place in the
-
-and goddess of dreams. epic.
-
-8 Literally, " he that shows favor." ■ Hea, god of the ocean, the earth's
-
-Ihe above prayer was translated for surface, brightness, etc., and chief pro-
-
-the first time by Rev. A. H. Sayce, lector of men.
-M.A., in the " Records of the Past," Dips in the waves, and pours upon the sands
-The sparkling drops, while all a hymn descant
+I dreamed upon my _dum-khi_* fast asleep,  
+The stars from heaven fell from yonder deep  
+To earth; and one, with fierceful heat my back  
+Did pierce as molten fire, and left its track  
+Of flames like some huge ball along my spine;  
+And then transformed, it turned its face to mine;  
+As some fierce god it glowed before my sight  
+Till agony was lost in dread affright.  
+I rooted stood, in terror, for its face  
+Was horrible; I saw in its feet's place  
+A lion's claws. It sprang, my strength it broke,  
+And slew me, gloating over me! Awoke,  
+I sprang, methought I was a corpse _ka-ra_*  
+_Va tal-ka mat sar, talka bu-la sha_  
+_Ra-pas-ti sat-ti, ar-id-da! ka-ra,_  
+_Va hal-li-ka! lik-ru-bu ki-mi-ta!_  
+The seers in silence stand, perplexed and think;  
+But from the task at once the wisest shrink.  
+The King each face soon read:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Ye tell me no?"  
+And nodding all, concealed from him their woe,  
+For they beheld within the dream some fate  
+Impending o'er him born of godly hate,  
+And durst not to their monarch prate their fears,  
+For flatterers of kings are all his seers.  
+The King impatient eyed them all with scorn,  
+And hid his thoughts by wildest passions born;  
+And then at last contemptuous to them said,  
+"So all my seers of trouble are afraid?  
+Or else in ignorance you turn away;  
+'Tis well! I sorely need a seer this day."  
+And they now prostrate fall before his throne,  
+"Forgive thy seers!" one cries, "O mighty One!  
+For we this dreadful dream do fear portends  
+Thy harm! a god some message to thee sends!  
+We know not what, but fear for thee, our Sar,  
+And none but one can augur it; afar  
+He lives, Heabani should before the King  
+Be brought from Za-Ga-bri* the _na-bu_* bring!"  
+"'Tis well! Prince Zaidu for the hermit send,  
+And soon this mystery your Sar will end."  
+The King distressed now to the temple goes  
+To lay before the mighty gods his woes;  
+This prayer recites to drive away bad dreams,  
+While Samas' holy altar brightly gleams:  
+"O Samas!* may my prayer bring me sweet rest,  
+And may my Lord his favor grant to me:  
+Annihilate the things that me invest!  
+This day, O God! distressed, I cry to thee!  
+O goddess! be thou gracious unto me,  
+Receive my prayer, my sins forgive I pray:  
+My wickedness and will arrayed 'gainst thee.  
+Oh, pardon me! O God, be kind this day,  
+My groaning may the seven winds destroy,  
+Clothe me with deep humility! receive  
+My prayers, as wingèd birds, oh, may they fly  
+And fishes carry them, and rivers weave  
+Them in the waters on to thee, O God!  
+As creeping things of the vast desert, cry  
+I unto thee outstretched on Erech's sod;  
+And from the river's lowest depths I pray;  
+My heart cause thou to shine like polished gold,  
+Though food and drink of Nin-a-zu* this day  
+Be mine, while worms and death thy servant fold.  
+Oh, from thine altar me support, protect,  
+In low humility I pray, forgive!  
+Feed me with joy, my dreams with grace direct;  
+The dream I dreamed, oh favorable give  
+To me its omen filled with happiness!  
+May Mak-hir,* god of dreams, my couch invest!  
+With visions of Bit-sag-gal my heart bless,  
+The temple of the gods, of Nin, with rest  
+Unbroken, and to Merodach I pray!  
+The favoring one, to prosper me and mine:  
+Oh,* may thy entering exalted be!  
+And thy divinity with glory shine,  
+And may our city shine with glowing meads,  
+And all my people praise thy glorious deeds."  
+Now to Euphrates' banks the Sar and seers  
+Their footsteps turn to pray into the ears  
+Of Hea,* where, in white, a band of priests  
+Drawn in a crescent, Izdubar invests.  
+Now at the water's edge he leans, his hands  
+Dips in the waves, and pours upon the sands  
+The sparkling drops, while all a hymn descant  
 To Hea, thus the incantation chant:
 
-" O chant our incantation to the waters pure,
-Euphrates' waters flowing to the sea!
-Where Hea's holy face shines bright on every shore,
-
-O Sabit ^ of Timatu " to ye
-We pray! may your bright waters glowing shine
+"O chant our incantation to the waters pure,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Euphrates' waters flowing to the sea!  
+Where Hea's holy face shines bright on every shore,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;O Sabit* of Timatu* to ye  
+We pray! may your bright waters glowing shine  
 As Hea's face, and heaving breast divine!
 
-" O Sabit, to your father Hea take our prayer!
-And may Dao-ki-na,^° your bright mother, hear!
-With joy, oh shine, as peaceful as the sleeping light,
-O ever may your throbbing waves be bright,
-O spirit of the Heaven, hear!
-Remember us, Remember!
-O spirit of the earth, come near!
-Remember us. Remember!
-O hear us, Hea! hear us, dear Dao-ki-na I
-Ca-ca-ma u ca-ca-ma u ca-ca-ma! " ^
+"O Sabit, to your father Hea take our prayer!  
+And may Dao-ki-na,* your bright mother, hear!  
+With joy, oh shine, as peaceful as the sleeping light,  
+O ever may your throbbing waves be bright.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;O spirit of the Heaven, hear!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Remember us, Remember!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;O spirit of the earth, come near!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Remember us, Remember!  
+O hear us, Hea! hear us, dear Dao-ki-na!  
+_Ca-ca-ma u ca-ca-ma u ca-ca-ma!_"*
 
-COLUMN IV
+*) "Sat mu-si," in the night-time, or last night.
 
-Heabani, the Hermit Seer
+*) "Sib-zu," embroiderer.
 
-Before a cave within the Gab-ri ^ wild,
+*) "Ku-bar-ra," robe of a prince.
 
-A seer is resting on a rock; exiled
+*) "Tur-tan-u," next in rank to the King.
 
-By his own will from all the haunts of men,
+*) "Dum-khi" or "dun-khi," couch.
 
-Beside a pool within a rocky glen
+*) "Ka-ra! va," etc., "Speak out! and if thou augurest the death of the King, or if thou augurest life of extended years, I have spoken! Speak out! and cast the lots! may they be propitious with us!"
 
-He sits; a turban rests upon his brow.
+*) "Za-Ga-bri," the mountains of Zu, "Ga-bri" ("mountains"), and "Za," another form of "zu," the divine bird of the storm-cloud. They were at one time called the mountains of Susa, now the Kurdistan range of mountains. The name we have given we believe to be the probable ancient one.
 
-And meets the lengthened beard of whitest snow.
+*) "Na-bu," prophet, seer.
 
-This morn an omen comes before his eyes,
+*) We have here quoted a prayer after a bad dream, the text of which is lithographed in "C. I. W. A.," vol. 4. 66, 2, and is supposed to be an ancient Accadian prayer. See "Records of the Past," vol. 9. p. 151.
 
-And him disturbs with a wild eagle's cries
+*) "Nin-a-zu," the goddess of darkness and death.
 
-That fierce attacks a fox before his cave;
+*) "Mak-hir," the daughter of the sun, and goddess of dreams.
 
-For he of beasts is the most cunning knave;
+*) Literally, "he that shows favor." The above prayer was translated for the first time by Rev. A. H. Sayce, M. A., in the "Records of the Past," vol. 9. p. 151. We have followed as literally as possible the original, and have given it its probable place in the epic.
 
-•"Sab-it," or " Sabitu " ("seven"), The Assyrian word is " Amanu." The
+*) Hea, god of the ocean, the earth's surface, brightness, etc., and chief protector of men.
 
-the seven winds, gods of the abyss or original " ca-ca-ma " (" Amen ") con-
+## Tablet 2: Column 4. --- Heabani, the Hermit Seer.
 
-°'^2^?^- ^,<., 1. eludes the incantation; Heb. toN»
-
-in JA^^'f^'- ^^'^ ""^P-A ""■ •°'"'''"-.», See ■' C. I. W. A.." vol. iv. pi. 14; also
-
-w Dao-ki-na or Dao-ci_na, the « Records of the Past," vol. xi. p. 135.
-
-wife of Hea, and goddess of the ocean. 1 " Gab-ri," mountains.
-
-^ Amen and Amen and Amen!
-
-In wait upon the ground the fox hath lain
-To lure the bird^ which flying deems him slain.
-He fiercely seizes it, as swooping down,
-The bird with its sly quarry would have flown;
-But the a-si - quick seized it by the throat,
-While the wide wings with frantic fury smote
-The beast, and the sharp talons deeply tore
+Before a cave within the Gab-ri* wild,  
+A seer is resting on a rock; exiled  
+By his own will from all the haunts of men,  
+Beside a pool within a rocky glen  
+He sits; a turban rests upon his brow,  
+And meets the lengthened beard of whitest snow.  
+This morn an omen comes before his eyes,  
+And him disturbs with a wild eagle's cries  
+That fierce attacks a fox before his cave;  
+For he of beasts is the most cunning knave;  
+In wait upon the ground the fox hath lain  
+To lure the bird, which flying deems him slain.  
+He fiercely seizes it, as swooping down,  
+The bird with its sly quarry would have flown;  
+But the _a-si_* quick seized it by the throat,  
+While the wide wings with frantic fury smote  
+The beast, and the sharp talons deeply tore  
 Its foe --- both greedy for the other's gore.
 
-And lo! a voice from yonder sky resounds;
-Heabani to his feet now quickly bounds.
-And bowing, listens to the voice that comes
-In gentleness; upon the winds it roams
-From yon blue heights like sighing of the trees;
-The seer in reverence upon his knees
-Now holy bares his head in Samas' rays.
-While the soft voice to him thus gently says:
-" A messenger, Heabani, soon shall come
-With offers rich, to leave thy lonely home.
-This eagle sought its food and found a snare,
-The messenger will come from Izdubar^
-To learn from thee the meaning of his dream
-Which goddess Ishtar sent, --- a snare for him.
-Then to the messenger prove not a snare,
-As yonder a-si doth the eagle tear."
+*) "Sab-it," or "Sabitu" ("seven"), the seven winds, gods of the abyss or ocean.
 
-The seer in fury tore his beard of snow
-And cried ---
+*) "Tiamatu," the abyss or ocean.
 
-" Alas! my days shall end in woe
-Within these wilds my happiness is mine,
-No other joys I seek, my god divine;
-I would upon these rocks lie down to die,
-Upon my back here sleep eternally."
-And Samas urging, to him thus replied:
-" Heabani, hast thou not some manly pride?
-And thinkest thou no joy thou here wilt lose?
-The lovely Sam-kha-tu^ the seer may choose.
-Arrayed in trappings of divinity
-And the insignia of royalty,
+*) "Dao-ki-na" or "Dao-ci-na," the wife of Hea, and goddess of the ocean.
 
-2 " A-si," fox. ^ " Sam-kha-tu " (*' Joy "), one of the maids of Ishtar.
+*) "Amen and Amen and Amen!" The Assyrian word is "Amanu." The original "ca-ca-ma" ("Amen") concludes the incantation; Heb. [HEBREW], See "C. I. W. A.," vol. 4. pl. 14; also "Records of the Past," vol. 11. p. 135.
 
-Heabani then in Ercch shall be great,
-And live in happiness and royal state;
-And Izdubar shall hearken, and incline
-His heart in warmest friendship, and recline
-With thee upon a couch of luxury^
-And seat thee on a throne of royalty.
-On his left hand, a crown shall grace thy brow.
-Kings of the earth shall to thee subject bow
-And kiss thy feet, and Izdubar shall give
-Thee wealth, and thou in luxury shalt live.
-In silence Erech's men shall bow to thee,
-In royal raiment thou shalt happy be."
-Heabani listened to the words that came
-From Samas, and his brow was lit with shame
-To hear the god of war urge him to go
-To earthly happiness --- mayhap to woe;
-But he within his cave now listless turns
-When Samas ceased; then to his rock returns,
-And seats himself with calmness on his brow;
-His thoughts in happy memories now flow.
-And he recalls the blissful days of yore
-When he as seer lived on Euphrates' shore.
-As the queen's bard oft tuned a festive lay.
+*) "Gab-ri," mountains.
+
+And lo! a voice from yonder sky resounds;  
+Heabani to his feet now quickly bounds,  
+And bowing, listens to the voice that comes  
+In gentleness; upon the winds it roams  
+From yon blue heights like sighing of the trees;  
+The seer in reverence upon his knees  
+Now holy bares his head in Samas' rays,  
+While the soft voice to him thus gently says:  
+"A messenger, Heabani, soon shall come  
+With offers rich, to leave thy lonely home.  
+This eagle sought its food and found a snare,  
+The messenger will come from Izdubar,  
+To learn from thee the meaning of his dream  
+Which goddess Ishtar sent, --- a snare for him.  
+Then to the messenger prove not a snare,  
+As yonder _a-si_ doth the eagle tear."
+
+The seer in fury tore his beard of snow  
+And cried ---  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;"Alas! my days shall end in woe  
+Within these wilds my happiness is mine,  
+No other joys I seek, my god divine;  
+I would upon these rocks lie down to die,  
+Upon my back here sleep eternally."  
+And Samas urging, to him thus replied:  
+"Heabani, hast thou not some manly pride?  
+And thinkest thou no joy thou here wilt lose?  
+The lovely Sam-kha-tu* the seer may choose.  
+Arrayed in trappings of divinity  
+And the insignia of royalty,  
+Heabani then in Erech shall be great,  
+And live in happiness and royal state;  
+And Izdubar shall hearken, and incline  
+His heart in warmest friendship, and recline  
+With thee upon a couch of luxury,  
+And seat thee on a throne of royalty,  
+On his left hand, a crown shall grace thy brow.  
+Kings of the earth shall to thee subject bow  
+And kiss thy feet, and Izdubar shall give  
+Thee wealth, and thou in luxury shalt live.  
+In silence Erech's men shall bow to thee,  
+In royal raiment thou shalt happy be."  
+Heabani listened to the words that came  
+From Samas, and his brow was lit with shame  
+To hear the god of war urge him to go  
+To earthly happiness --- mayhap to woe;  
+But he within his cave now listless turns  
+When Samas ceased; then to his rock returns,  
+And seats himself with calmness on his brow;  
+His thoughts in happy memories now flow,  
+And he recalls the blissful days of yore  
+When he as seer lived on Euphrates' shore,  
+As the queen's bard oft tuned a festive lay,  
 While soft-eyed maidens dance and cymbals play.
 
-COLUMN V
+*) "A-si," fox.
 
-Expedition of Zaidu in Search of the Seer
+*) "Sam-kha-tu" ("Joy"), one of the maids of Ishtar.
+
+## Tablet 2: Column 5. --- Expedition of Zaidu in Search of the Seer.
 
 Prince Zaidu on his steed now hastes away,
-
 Upon the plains he travelled all that day;
-
 Next morn the Za-Gabri he slow ascends,
-
 Along the mountain sides the horseman wends
-
 Beneath the Eri-ni/ and cliffs, and sees
-
 The plains and mountains o'er the misty trees
-
 From the wild summit, and old Khar-sak glow
-
 Above them all with its twin crests of snow.
-
 He plunges in the wild to seek the cave;
-
 Three days unceasing sought young Zaidu brave,
 
 * " Eri-ni," cedar-trees.
