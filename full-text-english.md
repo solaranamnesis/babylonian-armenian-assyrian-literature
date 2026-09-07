@@ -1976,442 +1976,292 @@ Their love for him in every face doth blaze.
 
 ## Tablet 3: Column 2. --- Songs in Praise of Izdubar and Heabani as Sung by the Khau-ik-i.
 
-Our Izdubar dear Erech raised
+Our Izdubar dear Erech raised  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;From her distress, when she did mourn;  
+With joy his glorious name be praised!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Of a great warrior's daughter born,  
+And Bel in his own might, him arms,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;To Erech's sons and daughters save;  
+What other Sar hath glorious charms  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Like his, who saved proud Elam's slave?
 
-From her distress, when she did mourn;
-With joy his glorious name be praised!
+_Chorus_
 
-Of a great warrior's daughter born,
-And Bel in his own might, him arms,
+No rival hath our mighty Sar,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Thy cymbals strike and raise the cry!  
+All hail! All hail! great Izdubar!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;His deeds immortal glorify!
 
-To Erech's sons and daughters save;
-What other Sar hath glorious charms
+Our Izdubar our sons preserves  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;To all our fathers day and night,  
+And Erech's ruler well deserves  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Our highest praise, whose matchless might  
+Delights the gods! All hail our Sar!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Whose firmness, wisdom need no praise!  
+Queen Daunat's son, our Izdubar,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;His glory to the Sami* raise!
 
-Like his, who saved proud Elam's slave?
+_Chorus_
 
-Chorus
+Of a great warrior's daughter born,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The gods clothe him with matchless might;  
+His glory greets the coming morn,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Oh, how in him we all delight!
 
-No rival hath our mighty Sar,
+*) "Sami," heavens.
 
-Thy cymbals strike and raise the cry!
-
-All hail! All hail! great Izdubar!
-His deeds immortal glorify!
-
-Our Izdubar our sons preserves
-
-To all our fathers day and night,
-And Erech's ruler well deserves
-
-Our highest praise, whose matchless might
-Delights the gods! All hail our Sar!
-
-Whose firmness, wisdom need no praise!
-Queen Daunat's son, our Izdubar,
-
-His glory to the Sami ^ raise!
-
-Chorus
-Of a great warrior's daughter born,
-
-The gods clothe him with matchless might;
-His glory greets the coming morn,
-
-Oh, how in him we all delight!
-
-^ " Sami," heavens.
-
-And thus of Seer Heabani they now chant
+And thus of Seer Heabani they now chant  
 His birth and history and hyemal haunt.
 
-Who can compare with thee, O Nin! -
+Who can compare with thee, O Nin!*  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The son of Bel; thy hands didst lay  
+Upon Ar-ur-u, thine own queen,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;With glory crowned her on that day.
 
-The son of Bel; thy hands didst lay
-Upon Ar-ur-u, thine own queen,
+To her thy strength did give, and blessed  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Her with thy love and a dear son;  
+With Anu's strength within his breast,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And Ninip sped then to his throne.
 
-With glory crowned her on that day.
+When Queen Ar-u-ru hears her lord  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;From Erech's city far has gone,  
+She bows her head upon the sward,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;With pleading hands in woe doth moan.
 
-To her thy strength did give, and blessed
-
-Her with thy love and a dear son;
-With Anu's strength within his breast,
-
-And Ninip sped then to his throne.
-
-When Queen Ar-u-ru hears her lord
-
-From Erech's city far has gone,
-She bows her head upon the sward,
-
-With pleading hands in woe doth moan.
-
-And to Heabani she gave birth,
-
-The warrior, great Ninip's son.
-Whose fame is spread through all the earth.
-
-The queen with her own maids alone
-Retired within her palace walls
+And to Heabani she gave birth,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The warrior, great Ninip's son,  
+Whose fame is spread through all the earth.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The queen with her own maids alone  
+Retired within her palace walls  
 For purity in Erech's halls.
 
-Like the corn-god his face concealed,
+Like the corn-god his face concealed,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Of men and countries he possessed,  
+Great wisdom by the gods revealed:  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;As Ner* the god, his limbs were dressed.  
+With wild gazelles he ate his food  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;While roaming with them in the night;  
+For days he wandered in the wood,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;And bu-hir-tser-i* him delight.
 
-Of men and countries he possessed,
-Great wisdom by the gods revealed:
+The Zi-ar-ri* Heabani loves,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;That play within the running streams;  
+With Zi-ti-am-a-ti* he roves  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Upon the sands in warm sunbeams.
 
-As Ner ^ the god, his limbs were dressed.
-With wild gazelles he ate his food
+*) "Nin" or "Nin-ip," the god of the chase and war.
 
-While roaming with them in the night;
-For days he wandered in the wood,
+*) "Ner" or "Nergal," the giant king of war, the strong begetter.
 
-And bu-hir-tser-i * him delight.
+*) "Bu-hir-tser-i," beasts of the field.
 
-The Zi-ar-ri ^ Heabani loves,
+*) "Zi-ar-ri," spirits of the rivers, water-nymphs.
 
-That play within the running streams;
+*) "Zi-ti-am-a-ti," spirits of the sea, naiads or water-nymphs.
 
-With Zi-ti-am-a-ti ^ he roves
-
-Upon the sands in warm sunbeams.
-
-*" Nin " or '" Nin-ip," the god of the ' " Zi-ar-ri," spirits of the rivers,
-
-chase and war. water-nymphs.
-
-' " Ner " or " Nergal," the giant ^ " Zi-ti-am-a-ti," spirits of the sea.
-
-king of war, the strong begetter. naiads or water-nj'mphs.
-
-* " Bu-hir-tser-i," beasts of the field.
-
-" The prince returns, O Sar! " the herald said,
-
-And low before the throne he bowed his head;
-
-" Our Zaidu, the bewitcher of all men,
-
-Doth unsuccessful to us come again.
-
-Before the cave the seer confronted him
-
-Three days where Khar-sak's snowy brow doth gleam.
-
-Heabani with his beast in his cave went.
-
-And Zaidu waited, but his courage spent
-
-When he beheld the seer and beast remain
-
-Within the cave, and all his words were vain.
-
-The prince remains without with downcast face.
-
-And beg of thee, his Sar, thy sovereign grace."
-
-The king to all the maidens waves his hand,
-
+"The prince returns, O Sar!" the herald said,  
+And low before the throne he bowed his head;  
+"Our Zaidu, the bewitcher of all men,  
+Doth unsuccessful to us come again.  
+Before the cave the seer confronted him  
+Three days where Khar-sak's snowy brow doth gleam.  
+Heabani with his beast in his cave went,  
+And Zaidu waited, but his courage spent  
+When he beheld the seer and beast remain  
+Within the cave, and all his words were vain.  
+The prince remains without with downcast face,  
+And beg of thee, his Sar, thy sovereign grace."  
+The king to all the maidens waves his hand,  
 Then vanishes from sight the choral band.
 
-COLUMN III
+## Tablet 3: Column 3. --- Zaidu's Return, and His Instruction to Take Two Maids with Him to Entice the Seer from His Cave.
 
-Zaidu's Return, and His Instruction to Take Two Maids
-WITH Him to Entice the Seer from His Cave
-
-Prince Zaidu prostrate bows before the Sar,
-
-Arises, thus narrates to Izdubar:
-
-" Thy sovereign, Zaidu hath his king obeyed.
-
-The royal mission I have thus essayed
-
-As Ann's ^ soldier; I undaunted tried
-
-To urge my mission which the seer denied.
-
-I firmly met the beast that v/ith him came:
-
-Unmanly fear, confess I to my shame,
-
-Came o'er me when I first beheld the beast,
-
-In vain I plead, and in despair I ceased
-
-When he refused, and angry from me passed
-
-Within his cave, where clififs and rocks are massed;
-
-I climbed, but the wild entrance did not gain,
-
+Prince Zaidu prostrate bows before the Sar,  
+Arises, thus narrates to Izdubar:  
+"Thy sovereign, Zaidu hath his king obeyed,  
+The royal mission I have thus essayed  
+As Anu's* soldier; I undaunted tried  
+To urge my mission which the seer denied.  
+I firmly met the beast that with him came:  
+Unmanly fear, confess I to my shame,  
+Came o'er me when I first beheld the beast,  
+In vain I plead, and in despair I ceased  
+When he refused, and angry from me passed  
+Within his cave, where cliffs and rocks are massed;  
+I climbed, but the wild entrance did not gain,  
 And for advice have I returned again."
 
-" 'Tis well, my son," the Sar to Zaidu said.
-
-" Thy wisdom I commend for thy young head,
-
-Again upon thy mission thou must go.
-
-His might, and strength of purpose, thou dost know,
-
-* " Anu," the King of Heaven.
-
-Before a maiden's charms will tlcc away;
-
-For he doth love the Zi-Ga-bri - that play
-
-Within the mountain gorges. Turn thy face
-
-Again with manly portance; for I'll grace
-
-Thine embassy with two of our sweet maids,
-
-Who oft shall cheer thee through the mountain glades,
-
-Whom thou shalt lead before Heabani's den
-
-With their bright charms exposed within the glen.
-
-Take Sam-kha-tu and sweet Khar-imatu:
-
-They will entice the seer when he shall view
-
-Their charms displayed before his wondering eyes.
-
-With Sam-kha, Joy, the seer you will surprise;
-
-Khar-im-tu will thy plans successful end.
-
-To her seductive glance his pride will bend.
-
-Sweet Sam-kha's charms are known, she is our Joy,
-
-As Ishtar's aid her charms ne'er cloy;
-
-Kharun-tu with her perfect face and form,
-
-The hearts of all our court doth take by storm:
-
-When joys by our sweet Sam-kha are distilled,
-
-Kharun-tu's love o'ercomes us till we yield.
-
-Thus, armed with Love's Seduction and her Joy,
-
-The greatest powers of earth thou dost employ;
-
-No flesh can face them but a heart of stone^
-
+"'Tis well, my son," the Sar to Zaidu said,  
+"Thy wisdom I commend for thy young head,  
+Again upon thy mission thou must go.  
+His might, and strength of purpose, thou dost know,  
+Before a maiden's charms will flee away;  
+For he doth love the Zi-Ga-bri* that play  
+Within the mountain gorges. Turn thy face  
+Again with manly portance; for I'll grace  
+Thine embassy with two of our sweet maids,  
+Who oft shall cheer thee through the mountain glades,  
+Whom thou shalt lead before Heabani's den  
+With their bright charms exposed within the glen.  
+Take Sam-kha-tu and sweet Khar-imatu:  
+They will entice the seer when he shall view  
+Their charms displayed before his wondering eyes.  
+With Sam-kha, Joy, the seer you will surprise;  
+Khar-im-tu will thy plans successful end,  
+To her seductive glance his pride will bend.  
+Sweet Sam-kha's charms are known, she is our Joy,  
+As Ishtar's aid her charms ne'er cloy;  
+Kharun-tu with her perfect face and form,  
+The hearts of all our court doth take by storm:  
+When joys by our sweet Sam-kha are distilled,  
+Kharun-tu's love o'ercomes us till we yield.  
+Thus, armed with Love's Seduction and her Joy,  
+The greatest powers of earth thou dost employ;  
+No flesh can face them but a heart of stone,  
 And all the world doth lie before them prone."
 
-Three days Prince Zaidu sat with Kharun-tu
+*) "Anu," the King of Heaven.
 
-Before the cave within Heabani's view;
-
-Beside the pool they w'aited for the seer:
-
-From Erech three days' journey brought them here.
-
-But where hath Joy, sweet Sam-kha, roving gone?
-
-When they arrived at setting of the sun
-
-She disappeared within with waving arms;
-
-With bright locks flowing she displayed her charms.
-
-As some sweet cir-ru did young Sam-kha seem,
-
+Three days Prince Zaidu sat with Kharun-tu  
+Before the cave within Heabani's view;  
+Beside the pool they waited for the seer:  
+From Erech three days' journey brought them here,  
+But where hath Joy, sweet Sam-kha, roving gone?  
+When they arrived at setting of the sun  
+She disappeared within with waving arms;  
+With bright locks flowing she displayed her charms.  
+As some sweet _zir-ru_ did young Sam-kha seem,  
 A thing of beauty of some mystic dream.
 
-2 " Zi-Gab-ri," spirits of the mountains.
+*) "Zi-Gab-ri," spirits of the mountains.
 
-COLUMN IV
+## Tablet 3: Column 4. --- The Two Maidens Entice the Seer.
 
-The Two Maidens Entice the Seer
-
-Thus in Heabani's cave the maiden went,
-And o'er the sleeping seer her form she bent;
-O'er him who with gazelles oft eats his food;
-O'er him who drinks with hhu-ri ^ in the wood;
-O'er him who loves the zir-ri, --- of them dreams,
-And sports with them within the mountain streams.
-And when the gay enticer saw the seer
-Unconscious sleeping with sweet Joy so near.
-She clasped him to her breast and kissed his brow.
-The seer awakes, with wonder eyes her now:
-" Thy glory thou hast brought to me! " he saith,
-" Sweet Zir-ru comes to me with fragrant breath! "
-And with delight he eyes her beauteous form,
-His breast warm moved by the enticer's charm.
-He springs upon his feet and her pursues:
+Thus in Heabani's cave the maiden went,  
+And o'er the sleeping seer her form she bent;  
+O'er him who with gazelles oft eats his food;  
+O'er him who drinks with _bhu-ri_* in the wood;  
+O'er him who loves the _zir-ri_, --- of them dreams,  
+And sports with them within the mountain streams.  
+And when the gay enticer saw the seer  
+Unconscious sleeping with sweet Joy so near,  
+She clasped him to her breast and kissed his brow.  
+The seer awakes, with wonder eyes her now:  
+"Thy glory thou hast brought to me!" he saith,  
+"Sweet Zir-ru comes to me with fragrant breath!"  
+And with delight he eyes her beauteous form,  
+His breast warm moved by the enticer's charm.  
+He springs upon his feet and her pursues:  
 She laughing flees; to sport with him doth choose.
 
-And now he eyes his hairy body, arms
-
-Compared to Sam-kha's snowy god-like charms.
-
-She give to him her freshness, blooming youth?
-
-She laughing comes again to him, --- Forsooth!
-
-Her glorious arms she opens, flees away,
-
-While he doth follow the enticer gay.
-
-He seizes, kisses, takes away her breath,
-
-And she falls to the ground --- perhaps in death
-
-He thinks, and o'er her leans where she now lay;
-
-At last she breathes, and springs, and flees away.
-
-But he the sport enjoys, and her pursues;
-
-But glancing back his arms she doth refuse.
-
-And thus three days and four of nights she played;
-
-For of Heabani's love she was afraid.
-
-Her joyous company doth him inspire
-
-For Sam-kha, joy, and love, and wild desire.
-
-He was not satisfied unless her form
-
-Remained before him with her endless charm.
-
-^ " Bhu-ri," wild-beasts, pets of the hermit seer.
-
-But when his bint-ri of the field the sight
-Beheld, the wild gazelles fled in affright.
-And now without the cave they came in view
+And now he eyes his hairy body, arms  
+Compared to Sam-kha's snowy god-like charms,  
+She give to him her freshness, blooming youth?  
+She laughing comes again to him, --- Forsooth!  
+Her glorious arms she opens, flees away,  
+While he doth follow the enticer gay.  
+He seizes, kisses, takes away her breath,  
+And she falls to the ground --- perhaps in death  
+He thinks, and o'er her leans where she now lay;  
+At last she breathes, and springs, and flees away.  
+But he the sport enjoys, and her pursues;  
+But glancing back his arms she doth refuse.  
+And thus three days and four of nights she played;  
+For of Heabani's love she was afraid.  
+Her joyous company doth him inspire  
+For Sam-kha, joy, and love, and wild desire.  
+He was not satisfied unless her form  
+Remained before him with her endless charm.  
+But when his _bhu-ri_ of the field the sight  
+Beheld, the wild gazelles fled in affright.  
+And now without the cave they came in view  
 Of Zaidu waiting with sweet Kharim-tu,
 
-And when Ileahani saw the rounded form
+*) "Bhu-ri," wild-beasts, pets of the hermit seer.
 
-Of bright Kharim-tu, her voluptuous charm
-
-Drew him to her, and at her feet he sate
-
-With wistful face, resigned to any fate.
-
-Kharim-tu, smiling sweetly, bent her head,
-
-Enticing him the tempter coyly said,
-
-" Heabani, like a famous god thou art,
-
-Why with these creeping things doth sleep thy heart?
-
-Come thou with me to Erech Su-bu-ri^
-
-To Anu's temple Elli-tar-du-si^
-
-And Ishtar's city where great Izdubar
-
-Doth reign, the glorious giant king of war;
-
-Whose mighty strength above his chiefs doth tower.
-
-Come see our giant king of matchless power."
-
-Her flashing eyes half languid pierce the seer,
-
-Until his first resolves all disappear.
-
-And rising to his feet his eyes he turned
-
-Toward sweet Joy,^ whose love for him yet burned;
-
-And eyeing both with beaming face he saith,
-
-" With Sam-kha's love the seer hath pledged his faith;
-
-And I will go to Elli-tar-du-si,
-
-Great Anu's seat and Ishtar's where with thee,
-
-I will behold the giant Izdubar,
-
-Whose fame is known to me as king of war;
-
-And I will meet him there, and test the power
-
-Of him whose fame above all men doth tower.
-
-A mid-dan-nu ^ to Erech I will take,
-
-To see if he its mighty strength can break.
-
-In these wild caves its strength has mighty grown;
-
-If he the beast destroys, I will make known
-
-His dream to him --- e'en all the seer doth know;
-
+And when Heabani saw the rounded form  
+Of bright Kharim-tu, her voluptuous charm  
+Drew him to her, and at her feet he sate  
+With wistful face, resigned to any fate.  
+Kharim-tu, smiling sweetly, bent her head,  
+Enticing him the tempter coyly said,  
+"Heabani, like a famous god thou art,  
+Why with these creeping things doth sleep thy heart?  
+Come thou with me to Erech Su-bu-ri*  
+To Anu's temple Elli-tar-du-si,  
+And Ishtar's city where great Izdubar  
+Doth reign, the glorious giant king of war;  
+Whose mighty strength above his chiefs doth tower,  
+Come see our giant king of matchless power."  
+Her flashing eyes half languid pierce the seer,  
+Until his first resolves all disappear.  
+And rising to his feet his eyes he turned  
+Toward sweet Joy,* whose love for him yet burned;  
+And eyeing both with beaming face he saith,  
+"With Sam-kha's love the seer hath pledged his faith;  
+And I will go to Elli-tar-du-si,  
+Great Anu's seat and Ishtar's where with thee,  
+I will behold the giant Izdubar,  
+Whose fame is known to me as king of war;  
+And I will meet him there, and test the power  
+Of him whose fame above all men doth tower.  
+A _mid-dan-nu_* to Erech I will take,  
+To see if he its mighty strength can break.  
+In these wild caves its strength has mighty grown;  
+If he the beast destroys, I will make known  
+His dream to him --- e'en all the seer doth know;  
 And now with thee to Erech I will go.
 
-2 " Su-bu-ri," the lofty. imal, supposed to be a tiger; the
+*) "Su-bu-ri," the lofty.
 
-s Joy, " Sani-kha-tu " or " Samkha." Khorsabad sculpture, however, por-
+*) Joy, "Sam-kha-tu" or "Samkha."
 
-* " Mid-dan-nu," a carnivorous an- trays it as a lion.
+*) "Mid-dan-nu," a carnivorous animal, supposed to be a tiger; the Khorsabad sculpture, however, portrays it as a lion.
 
-COLUMN V
+## Tablet 3: Column 5. --- Festival in Honor of Heabani, Who Arrives at Erech; Interpretation of the Dream.
 
-Festival in Honor of Heabani, Who Arrives at ErechInterpretation of the Dream
-
-The sounds of wild rejoicing now arise;
-" Heabani comes! " resound the joyful cries,
-And through the gates of Erech Suburi
-Now file the chieftains, Su-khu-li rubi.^
-A festival in honor of their guest
-The Sar proclaims, and Erech gaily drest.
-Her welcome warm extends to the famed seer.
-The maidens, Erech's daughters, now appear,
-With richest kirtles gaily decked with flowers,
-And on his head they rain their rosy showers.
-Rejoicing sing, while harps and cymbals play.
-And laud him to the skies in their sweet way;
-And mingling with their joy, their monarch rode
-Before the seer, who stately after strode
-Beside his beast, and next the men of fame.
+The sounds of wild rejoicing now arise;  
+"Heabani comes!" resound the joyful cries,  
+And through the gates of Erech Suburi  
+Now file the chieftains, Su-khu-li rubi.*  
+A festival in honor of their guest  
+The Sar proclaims, and Erech gaily drest,  
+Her welcome warm extends to the famed seer.  
+The maidens, Erech's daughters, now appear,  
+With richest kirtles gaily decked with flowers,  
+And on his head they rain their rosy showers.  
+Rejoicing sing, while harps and cymbals play,  
+And laud him to the skies in their sweet way;  
+And mingling with their joy, their monarch rode  
+Before the seer, who stately after strode  
+Beside his beast, and next the men of fame.  
 The maids thus chant high honors to his name:
 
-" A prince we make thee, mighty seer!
-Be filled with joy and royal cheer!
-All hail to Erech's seer!
+"A prince we make thee, mighty seer!  
+Be filled with joy and royal cheer!  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;All hail to Erech's seer!
 
-Whom day and night our Sar hath sought,
-O banish fear! for Hea taught
+Whom day and night our Sar hath sought,  
+O banish fear! for Hea taught  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;The seer, his glory wrought.
 
-The seer, his glory wrought.
+He comes! whom Samas loves as gold,  
+To Erech grace, our city old;  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;All wisdom he doth hold.
 
-He comes! whom Samas loves as gold.
-To Erech grace, our city old;
+Great Hea doth to him unfold  
+All that remains to man untold;  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Give him the chain of gold!
 
-All wisdom he doth hold.
+He Cometh from the Za-Gab-ri  
+To our dear Erech Su-bu-ri.  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Heabani glorify!
 
-Great Hea doth to him unfold
-All that remains to man untold;
+Thy dream he will reveal, O Sar!  
+Its meaning show to Izdubar,  
+&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;Victorious king of war."
 
-Give him the chain of gold I
-
-He Cometh from the Za-Gab-ri
-To our dear Erech Su-bu-ri.
-Heabani glorify!
-
-* '■ Su-khu-li ru-bi," attendants of the King.
-
-FESTIVAL 5,
-
-Thy dream he will reveal, O Sar!
-Its meaning show lo Izdubar,
-
-Victorious kinj;- of war."
+*) "Su-khu-li ru-bi," attendants of the King.
 
 Within the council halls now lead the seers
 With trepidation and with many fears,
@@ -2421,8 +2271,7 @@ Among the seers, the Sar, his scribe commands
 To read his dream recorded as it stands
 In Erech's Gi;" who reads it to the seer,
 Who answers thus:
-
-" In this there doth appear
+"In this there doth appear
 A god, whose ardent love will lead to deeds
 Of hate against thee, Sar; thy present needs
 Are great, O king! as fire this love will burn
